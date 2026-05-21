@@ -3,7 +3,7 @@ title: "7 Things to Avoid Doing in High School under All Circumstances ..."
 description: "Talk Trash about Your Friends; Get in with the Wrong Crowd; Try to Become ‘popular’; Badmouthing Teachers on Social Media; Pull an All-nighter; More ..."
 url: "https://teen.allwomenstalk.com/things-to-avoid-doing-in-high-school-under-all-circumstances/"
 category: "teen"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Things to Avoid Doing in High School under All Circumstances ...
@@ -42,16 +42,16 @@ High school can seem like a big and unfamiliar place when you first get to exper
 
 ## Related Posts
 
-- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
-- [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
-- [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
-- [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
-- [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
-- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
 - [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
-- [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
-- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
 - [happiness is not something far away and unattainab...](https://inspiration.allwomenstalk.com/common-beliefs-of-unhappy-people-that-you-should-stay-far-away-from/)
+- [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
+- [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
+- [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
+- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
+- [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
+- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
+- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
+- [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
 - [7 Things You Should Never Tell Your Kids ...](https://allwomenstalk.com/7-things-you-should-never-tell-your-kids/)
 - [8 Things to Never Tell Your Parents ...](https://allwomenstalk.com/8-things-to-never-tell-your-parents/)
 
