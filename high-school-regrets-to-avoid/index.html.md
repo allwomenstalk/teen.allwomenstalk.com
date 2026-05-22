@@ -3,7 +3,7 @@ title: "7 High School Regrets to Avoid ..."
 description: "Not Getting to Know More People; Not Working Hard Enough; Procrastinating; Not Making Physical Activity a Priority; Caring Too Much about What Others Think; More ..."
 url: "https://teen.allwomenstalk.com/high-school-regrets-to-avoid/"
 category: "teen"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 High School Regrets to Avoid ...
@@ -42,15 +42,15 @@ High school is a place that becomes like a second home after four years. It’s 
 
 ## Related Posts
 
-- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
-- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
+- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
 - [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
-- [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
-- [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
+- [what do you get after graduating college](https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/)
 - [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
 - [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
-- [what do you get after graduating college](https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/)
-- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
+- [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
+- [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
+- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
+- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
 - [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
 - [7 Shopping Mistakes ...](https://lifestyle.allwomenstalk.com/7-shopping-mistakes/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)

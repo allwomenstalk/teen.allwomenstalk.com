@@ -3,7 +3,7 @@ title: "7 Issues You Should Always Discuss with Your Parents before Going to Col
 description: "Money; Drinking; Birth Control; Visitation Rights; Plan B; More ..."
 url: "https://teen.allwomenstalk.com/issues-to-discuss-with-your-parents-before-leaving-for-college/"
 category: "teen"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Issues  You Should Always Discuss with Your Parents before Going to College ...
@@ -43,15 +43,15 @@ Your parents are a great resource for advice throughout your life, especially du
 ## Related Posts
 
 - [How to Juggle Work and School without Going Insane...](https://lifestyle.allwomenstalk.com/how-to-juggle-work-and-school-without-going-insane/)
-- [Heres the Only Guide You Need to Picking Your Coll...](https://teen.allwomenstalk.com/heres-the-only-guide-you-need-to-picking-your-college-major/)
-- [The Essential 7 Strategies for Those Who Want to B...](https://teen.allwomenstalk.com/use-these-strategies-to-be-a-more-successful-student/)
-- [Life Changing Finance Tips All Freshmen Must Know ...](https://money.allwomenstalk.com/the-best-finance-tips-for-freshmen/)
-- [The 30 Healthiest US Colleges ... According to Tak...](https://lifestyle.allwomenstalk.com/the-healthiest-us-colleges-according-to-takeout-stats/)
 - [How You Differ from the Typical College Student .....](https://teen.allwomenstalk.com/how-you-differ-from-the-typical-college-student/)
+- [The Essential 7 Strategies for Those Who Want to B...](https://teen.allwomenstalk.com/use-these-strategies-to-be-a-more-successful-student/)
 - [7 Things Every Busy Student Understands ...](https://teen.allwomenstalk.com/things-every-busy-student-understands/)
 - [high school regrets](https://teen.allwomenstalk.com/how-to-survive-high-school-without-regrets/)
-- [Here Are the Best Jobs for College Students to Loo...](https://money.allwomenstalk.com/here-are-the-best-jobs-for-college-students/)
+- [Heres the Only Guide You Need to Picking Your Coll...](https://teen.allwomenstalk.com/heres-the-only-guide-you-need-to-picking-your-college-major/)
+- [The 30 Healthiest US Colleges ... According to Tak...](https://lifestyle.allwomenstalk.com/the-healthiest-us-colleges-according-to-takeout-stats/)
+- [Life Changing Finance Tips All Freshmen Must Know ...](https://money.allwomenstalk.com/the-best-finance-tips-for-freshmen/)
 - [Win an Interview with Us with Your Best BacktoScho...](https://lifestyle.allwomenstalk.com/win-an-interview-with-your-best-backtoschool-tip/)
+- [Here Are the Best Jobs for College Students to Loo...](https://money.allwomenstalk.com/here-are-the-best-jobs-for-college-students/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 

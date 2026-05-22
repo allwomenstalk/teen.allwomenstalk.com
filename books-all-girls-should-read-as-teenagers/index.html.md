@@ -3,7 +3,7 @@ title: "7 Books All Girls Should Read as Teenagers ..."
 description: "Sisterhood of the Traveling Pants Series by Ann Brashares; The Princess Diaries Series by Meg Cabot; The Daughters Series by Joanna Philbin; The Carrie Diaries by Candace Bushnell; Magic in Manhattan by Sarah Mylnowski; More ..."
 url: "https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/"
 category: "teen"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Books All Girls Should Read as Teenagers ...
@@ -56,16 +56,16 @@ What were your favorite books to read as a teenager? What would you recommend to
 
 ## Related Posts
 
+- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
 - [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
+- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
+- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
 - [anthony trollope novel](https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/)
 - [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
 - [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
 - [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
 - [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
-- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
-- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
 - [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [8 Things Teenager Girls Enjoy Doing ...](https://parenting.allwomenstalk.com/8-things-teenager-girls-enjoy-doing/)
 

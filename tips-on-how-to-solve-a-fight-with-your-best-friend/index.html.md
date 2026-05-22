@@ -3,7 +3,7 @@ title: "7 Tips on How to Solve a Fight with Your Best Friend ..."
 description: "Say “I’m Sorry”; Take the Initiative to Talk about It; Send a Card; Make Her Laugh; Have Someone else Talk to Her for You; More ..."
 url: "https://teen.allwomenstalk.com/tips-on-how-to-solve-a-fight-with-your-best-friend/"
 category: "teen"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Tips on How to Solve a Fight with Your Best Friend ...
@@ -42,16 +42,16 @@ It is really important try to work things out with your best friend if you have 
 
 ## Related Posts
 
+- [side by side or miles apart best friends](https://inspiration.allwomenstalk.com/ways-to-stay-best-friends-when-you-are-miles-apart/)
+- [mend our friendship](https://lifestyle.allwomenstalk.com/ways-to-mend-a-broken-friendship/)
 - [mean girl tactics](https://teen.allwomenstalk.com/ways-to-cope-with-a-mean-girl/)
-- [lie detector](https://lifestyle.allwomenstalk.com/tips-on-how-to-make-someone-admit-they-are-lying/)
+- [confrontive definition](https://lifestyle.allwomenstalk.com/useful-ways-to-confront-someone-giving-you-the-silent-treatment/)
 - [how to deal with irrational people](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-communicate-with-an-irrational-person/)
 - [how to stop being type a](https://lifestyle.allwomenstalk.com/ways-to-break-the-type-a-personality-obsession/)
 - [my mom stopped talking to me](https://teen.allwomenstalk.com/ways-to-deal-with-your-parents-fighting-constantly/)
-- [side by side or miles apart best friends](https://inspiration.allwomenstalk.com/ways-to-stay-best-friends-when-you-are-miles-apart/)
+- [lie detector](https://lifestyle.allwomenstalk.com/tips-on-how-to-make-someone-admit-they-are-lying/)
 - [how to deal with a sick parent](https://health.allwomenstalk.com/tips-on-how-to-cope-with-a-sick-family-member/)
-- [confrontive definition](https://lifestyle.allwomenstalk.com/useful-ways-to-confront-someone-giving-you-the-silent-treatment/)
 - [its very difficult to talk](https://inspiration.allwomenstalk.com/tips-for-dealing-with-someone-who-is-difficult-to-talk-to/)
-- [mend our friendship](https://lifestyle.allwomenstalk.com/ways-to-mend-a-broken-friendship/)
 - [How to Be a Good Friend: 7 Ways to Avoid Friendshi...](https://lifestyle.allwomenstalk.com/how-to-be-a-good-friend-7-ways-to-avoid-friendship-failures/)
 - [7 Ways to End a Fight ...](https://love.allwomenstalk.com/ways-to-end-a-fight/)
 

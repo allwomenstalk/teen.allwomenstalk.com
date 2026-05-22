@@ -3,7 +3,7 @@ title: "73 Cute Things to Say to Your Crush ..."
 description: "Cute Things to Say to Your Crush after a Date:; Cute Things to Say to Your Crush before Going Out:; Cute Things to Say to Your Crush When Dating:; Cute Things to Say to Your Crush to Get Them to Like You:; More ..."
 url: "https://teen.allwomenstalk.com/cute-things-to-say-to-your-crush/"
 category: "teen"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 73 Cute Things to Say to Your Crush ...
@@ -228,16 +228,16 @@ Whichever** line you choose for your crush** - practice it at home first so that
 
 ## Related Posts
 
-- [ill brag about you to my friends](https://love.allwomenstalk.com/ways-hell-brag-about-you-to-his-friends/)
-- [questions to ask your best friends boyfriend](https://love.allwomenstalk.com/ways-to-respond-if-your-friends-boyfriend-hits-on-you/)
-- [how to be a friend with a guy](https://love.allwomenstalk.com/tips-for-when-your-boyfriend-is-jealous-of-your-guy-friends/)
-- [typical boy things](https://lifestyle.allwomenstalk.com/typically-guy-things-you-should-know-how-to-do/)
-- [i dont know what to talk about with my boyfriend](https://love.allwomenstalk.com/things-to-do-when-you-and-your-boyfriend-are-not-talking/)
-- [no one wants to be my friend](https://love.allwomenstalk.com/ways-to-handle-a-friend-wanting-to-date-you/)
 - [i cant wait to see you response](https://love.allwomenstalk.com/text-messages-your-guy-would-love-to-receive-from-you/)
+- [i dont know what to talk about with my boyfriend](https://love.allwomenstalk.com/things-to-do-when-you-and-your-boyfriend-are-not-talking/)
+- [how to be a friend with a guy](https://love.allwomenstalk.com/tips-for-when-your-boyfriend-is-jealous-of-your-guy-friends/)
+- [ill brag about you to my friends](https://love.allwomenstalk.com/ways-hell-brag-about-you-to-his-friends/)
 - [boyfriend is busy with school](https://love.allwomenstalk.com/ways-to-make-time-for-him-during-a-busy-school-year/)
-- [pick up lines for school crush](https://funny.allwomenstalk.com/hysterical-pick-up-lines-that-will-work-in-the-classroom/)
+- [typical boy things](https://lifestyle.allwomenstalk.com/typically-guy-things-you-should-know-how-to-do/)
+- [questions to ask your best friends boyfriend](https://love.allwomenstalk.com/ways-to-respond-if-your-friends-boyfriend-hits-on-you/)
 - [tinder social experiment](https://lifestyle.allwomenstalk.com/social-experiment-changing-up-appearances-for-tinder-dates/)
+- [no one wants to be my friend](https://love.allwomenstalk.com/ways-to-handle-a-friend-wanting-to-date-you/)
+- [pick up lines for school crush](https://funny.allwomenstalk.com/hysterical-pick-up-lines-that-will-work-in-the-classroom/)
 - [Love Tips: 7 Unexpected Ways to Bump into Your Cru...](https://love.allwomenstalk.com/love-tips-unexpected-ways-to-bump-into-your-crush/)
 - [7 Creative Ways to Say I Love You ...](https://allwomenstalk.com/7-simple-ways-to-say-i-love-you/)
 

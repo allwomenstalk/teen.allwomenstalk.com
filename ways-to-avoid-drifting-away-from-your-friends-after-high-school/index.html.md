@@ -3,7 +3,7 @@ title: "7 Ways to Avoid Drifting Away from Your Friends after High School ..."
 description: "Make the Commitment; Have a Goodbye Party; Update Your Social Media; Make Time for Each Other; Respect Your Space; More ..."
 url: "https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/"
 category: "teen"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ways to Avoid Drifting Away from Your Friends after High School ...
@@ -42,15 +42,15 @@ I'm getting in touch with many of my high school friends, and over a decade late
 
 ## Related Posts
 
-- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
-- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
-- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
-- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
-- [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
-- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
 - [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
+- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
+- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
 - [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
 - [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
+- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
+- [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
+- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
+- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
 - [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Stay Close across the Miles ...](https://allwomenstalk.com/7-ways-to-stay-close-across-the-miles/)
