@@ -42,16 +42,16 @@ A class can be ruined if you can’t seem to get on your teacher’s good side, 
 
 ## Related Posts
 
-- [how to fix a problem with your friend](https://teen.allwomenstalk.com/tips-on-how-to-solve-a-fight-with-your-best-friend/)
 - [confrontive definition](https://lifestyle.allwomenstalk.com/useful-ways-to-confront-someone-giving-you-the-silent-treatment/)
-- [how to stop being type a](https://lifestyle.allwomenstalk.com/ways-to-break-the-type-a-personality-obsession/)
+- [mend our friendship](https://lifestyle.allwomenstalk.com/ways-to-mend-a-broken-friendship/)
+- [how to clear misunderstanding in relationship](https://lifestyle.allwomenstalk.com/useful-tips-on-how-to-repair-the-damage-from-a-misunderstanding/)
+- [how to deal with irrational people](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-communicate-with-an-irrational-person/)
+- [how to fix a problem with your friend](https://teen.allwomenstalk.com/tips-on-how-to-solve-a-fight-with-your-best-friend/)
+- [side by side or miles apart best friends](https://inspiration.allwomenstalk.com/ways-to-stay-best-friends-when-you-are-miles-apart/)
+- [lie detector](https://lifestyle.allwomenstalk.com/tips-on-how-to-make-someone-admit-they-are-lying/)
 - [how to deal with a sick parent](https://health.allwomenstalk.com/tips-on-how-to-cope-with-a-sick-family-member/)
 - [how to say someone is rude professionally](https://lifestyle.allwomenstalk.com/best-ways-to-respond-to-a-rude-email/)
-- [mend our friendship](https://lifestyle.allwomenstalk.com/ways-to-mend-a-broken-friendship/)
-- [lie detector](https://lifestyle.allwomenstalk.com/tips-on-how-to-make-someone-admit-they-are-lying/)
-- [how to deal with irrational people](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-communicate-with-an-irrational-person/)
-- [how to clear misunderstanding in relationship](https://lifestyle.allwomenstalk.com/useful-tips-on-how-to-repair-the-damage-from-a-misunderstanding/)
-- [side by side or miles apart best friends](https://inspiration.allwomenstalk.com/ways-to-stay-best-friends-when-you-are-miles-apart/)
+- [how to stop being type a](https://lifestyle.allwomenstalk.com/ways-to-break-the-type-a-personality-obsession/)
 - [7 Ways to Be a Good Influence on Your Children ...](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
 - [7 Ways to Thank Your Teacher ...](https://lifestyle.allwomenstalk.com/ways-to-thank-your-teacher/)
 

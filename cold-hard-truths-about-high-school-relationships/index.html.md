@@ -54,16 +54,16 @@ Are you in a high school relationship?
 
 ## Related Posts
 
-- [laughter in a relationship](https://love.allwomenstalk.com/why-the-couple-who-laughs-together-stays-together/)
-- [relationship question quiz](https://love.allwomenstalk.com/relationship-trivia-questions-to-quiz-your-partner-with/)
-- [nightskiesnetwork](https://love.allwomenstalk.com/websites-that-will-help-keep-your-ldr-alive-and-kicking/)
-- [things healthy couples do](https://love.allwomenstalk.com/what-healthy-couples-do-each-and-every-morning/)
-- [how to watch netflix with someone long distance](https://love.allwomenstalk.com/watch-netflix-with-your-long-distance-lover/)
-- [kissing rules](https://love.allwomenstalk.com/kissing-rules-you-should-always-abide-by/)
-- [boyfriend girlfriend goals](https://love.allwomenstalk.com/relationship-goals-for-girls-in-college/)
 - [what questions to ask a man you want to marry](https://love.allwomenstalk.com/these-questions-will-tell-you-if-hes-the-man-you-should-marry/)
-- [odds of falling in love](https://love.allwomenstalk.com/things-thatll-boost-your-chances-of-falling-in-love/)
+- [relationship question quiz](https://love.allwomenstalk.com/relationship-trivia-questions-to-quiz-your-partner-with/)
+- [boyfriend girlfriend goals](https://love.allwomenstalk.com/relationship-goals-for-girls-in-college/)
+- [laughter in a relationship](https://love.allwomenstalk.com/why-the-couple-who-laughs-together-stays-together/)
+- [how to watch netflix with someone long distance](https://love.allwomenstalk.com/watch-netflix-with-your-long-distance-lover/)
 - [bad girlfriend quotes](https://love.allwomenstalk.com/these-things-dont-make-you-a-bad-girlfriend/)
+- [kissing rules](https://love.allwomenstalk.com/kissing-rules-you-should-always-abide-by/)
+- [things healthy couples do](https://love.allwomenstalk.com/what-healthy-couples-do-each-and-every-morning/)
+- [nightskiesnetwork](https://love.allwomenstalk.com/websites-that-will-help-keep-your-ldr-alive-and-kicking/)
+- [odds of falling in love](https://love.allwomenstalk.com/things-thatll-boost-your-chances-of-falling-in-love/)
 - [7 Outdated Relationship Rules ...](https://love.allwomenstalk.com/7-outdated-relationship-rules/)
 - [7 Dos  Donts in a Relationship ...](https://love.allwomenstalk.com/dos-donts-in-a-relationship/)
 

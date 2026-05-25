@@ -50,16 +50,16 @@ Sleep in college isn't impossible. With a few tweaks to your routine, you'll be 
 
 ## Related Posts
 
-- [7 Tips on How to Build a Resume when in High Schoo...](https://teen.allwomenstalk.com/tips-on-how-to-build-a-resume-when-in-high-school/)
-- [Everything You Need to Know about Writing a Schola...](https://teen.allwomenstalk.com/tips-for-writing-a-scholarship-essay/)
-- [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
-- [Are You Prepared to Get Your Masters Degree ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
-- [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
-- [appreciate your time](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
 - [Read This if You Need Help with the Common Applica...](https://teen.allwomenstalk.com/tips-for-understanding-the-common-application/)
 - [Beware of These Difficulties when Youre Studying f...](https://money.allwomenstalk.com/difficulties-you-can-encounter-when-studying-for-an-online-degree/)
-- [Get Some Help with Narrowing down Your College Lis...](https://teen.allwomenstalk.com/helpful-tips-for-narrowing-down-your-college-list/)
+- [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
 - [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
+- [7 Tips on How to Build a Resume when in High Schoo...](https://teen.allwomenstalk.com/tips-on-how-to-build-a-resume-when-in-high-school/)
+- [Everything You Need to Know about Writing a Schola...](https://teen.allwomenstalk.com/tips-for-writing-a-scholarship-essay/)
+- [Get Some Help with Narrowing down Your College Lis...](https://teen.allwomenstalk.com/helpful-tips-for-narrowing-down-your-college-list/)
+- [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
+- [Are You Prepared to Get Your Masters Degree ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
+- [appreciate your time](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
 - [How to Have a Better Healthy Sleep ...](https://allwomenstalk.com/how-to-have-a-better-healthy-sleep/)
 - [7 Tips on Finding Motivation to Go to College ...](https://allwomenstalk.com/7-tips-on-finding-motivation-to-go-to-college/)
 

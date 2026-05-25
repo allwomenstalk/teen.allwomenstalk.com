@@ -42,16 +42,16 @@ As a teenager you want to constantly socialize, move around and experience new t
 
 ## Related Posts
 
-- [why do i want to be an ra](https://money.allwomenstalk.com/reasons-being-a-resident-assistant-might-be-the-best-college-student-job/)
 - [are you 16 years old](https://teen.allwomenstalk.com/awesome-reasons-to-love-being-16/)
-- [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
-- [why should i go to a liberal arts college](https://teen.allwomenstalk.com/reasons-to-go-to-a-liberal-arts-college/)
-- [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
 - [st patricks in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
+- [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
+- [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
+- [why do i want to be an ra](https://money.allwomenstalk.com/reasons-being-a-resident-assistant-might-be-the-best-college-student-job/)
+- [why should i go to a liberal arts college](https://teen.allwomenstalk.com/reasons-to-go-to-a-liberal-arts-college/)
+- [having empathy helps you predict what others may f...](https://inspiration.allwomenstalk.com/important-reasons-why-practicing-empathy-makes-you-a-better-person/)
 - [aldi tallahassee](https://food.allwomenstalk.com/reasons-to-shop-at-aldi-grocery-stores/)
 - [what does ra mean in college](https://lifestyle.allwomenstalk.com/reasons-to-become-an-ra-in-university/)
 - [i feel guilty spending money on myself](https://money.allwomenstalk.com/good-reasons-you-should-spend-money-on-yourself/)
-- [having empathy helps you predict what others may f...](https://inspiration.allwomenstalk.com/important-reasons-why-practicing-empathy-makes-you-a-better-person/)
 - [7 Reasons Teenagers Want to Drop out of School ...](https://allwomenstalk.com/7-reasons-teenagers-want-to-drop-out-of-school/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 

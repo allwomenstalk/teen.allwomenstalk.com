@@ -68,16 +68,16 @@ Graduation is scary and exciting, because it signals the transition from adolesc
 
 ## Related Posts
 
-- [quote from adele](https://inspiration.allwomenstalk.com/adele-quotes-you-should-pay-attention-to/)
-- [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
 - [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
 - [i fell in love slowly and then all at once](https://inspiration.allwomenstalk.com/inspiring-quotes-from-john-green-that-youll-love/)
+- [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
+- [coco chanel - quotes fashion  facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
+- [wayne dyer quotes on relationships](https://love.allwomenstalk.com/simple-quotes-about-the-language-of-love/)
 - [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
 - [noahs poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
-- [coco chanel - quotes fashion  facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
-- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
+- [quote from adele](https://inspiration.allwomenstalk.com/adele-quotes-you-should-pay-attention-to/)
 - [olaf quotes from frozen](https://funny.allwomenstalk.com/frozen-quotes-to-use-in-your-everyday-life/)
-- [wayne dyer quotes on relationships](https://love.allwomenstalk.com/simple-quotes-about-the-language-of-love/)
+- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 - [21 Inspirational Celebrity Quotes That Will Change...](https://inspiration.allwomenstalk.com/inspirational-celebrity-quotes/)
 

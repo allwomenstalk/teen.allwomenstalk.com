@@ -88,16 +88,16 @@ There's never an excuse for boredom when there are so many skills you could be l
 
 ## Related Posts
 
-- [why is summer so annoying](https://beauty.allwomenstalk.com/prepare-yourself-for-these-annoying-summer-problems/)
-- [movies under stars](https://movies.allwomenstalk.com/the-best-places-to-watch-a-movie-under-the-stars-this-summer/)
-- [angie miraval](https://food.allwomenstalk.com/these-are-the-perfect-wines-for-summer-nights/)
 - [sunday brunch koh samui](https://food.allwomenstalk.com/best-places-to-eat-in-koh-samui-for-people-traveling-to-thailand-this-summer/)
-- [summer tech gadgets](https://travel.allwomenstalk.com/the-ultimate-list-of-beach-gadgets-to-survive-summer-by-the-water/)
-- [summer catch television show](https://movies.allwomenstalk.com/awesome-tv-shows-to-catch-on-netflix-this-summer/)
-- [excuse for not attending dinner](https://lifestyle.allwomenstalk.com/great-excuses-for-missing-that-wedding-or-grad-party-this-summer/)
-- [camp fire recipes](https://food.allwomenstalk.com/easy-campfire-treats-for-the-summer/)
+- [why is summer so annoying](https://beauty.allwomenstalk.com/prepare-yourself-for-these-annoying-summer-problems/)
+- [angie miraval](https://food.allwomenstalk.com/these-are-the-perfect-wines-for-summer-nights/)
 - [sarah scribbles period](https://funny.allwomenstalk.com/comics-that-sum-up-my-life-this-summer/)
+- [summer catch television show](https://movies.allwomenstalk.com/awesome-tv-shows-to-catch-on-netflix-this-summer/)
 - [things to do with your bestie in summer](https://lifestyle.allwomenstalk.com/fun-summer-adventures-to-do-with-your-bestie/)
+- [movies under stars](https://movies.allwomenstalk.com/the-best-places-to-watch-a-movie-under-the-stars-this-summer/)
+- [excuse for not attending dinner](https://lifestyle.allwomenstalk.com/great-excuses-for-missing-that-wedding-or-grad-party-this-summer/)
+- [summer tech gadgets](https://travel.allwomenstalk.com/the-ultimate-list-of-beach-gadgets-to-survive-summer-by-the-water/)
+- [camp fire recipes](https://food.allwomenstalk.com/easy-campfire-treats-for-the-summer/)
 - [10 Summer Activities to Keep Cool ...](https://lifestyle.allwomenstalk.com/summer-activities-to-keep-cool/)
 - [7 Tips to Survive Your First Summer as a College G...](https://lifestyle.allwomenstalk.com/tips-to-survive-your-first-summer-as-a-college-graduate/)
 

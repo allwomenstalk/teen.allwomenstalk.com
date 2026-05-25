@@ -42,16 +42,16 @@ I'm getting in touch with many of my high school friends, and over a decade late
 
 ## Related Posts
 
-- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
 - [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
-- [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
 - [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
 - [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
-- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
 - [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
-- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
-- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
+- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
 - [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
+- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
+- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
+- [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
+- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Stay Close across the Miles ...](https://allwomenstalk.com/7-ways-to-stay-close-across-the-miles/)
 

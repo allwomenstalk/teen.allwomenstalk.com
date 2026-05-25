@@ -117,15 +117,15 @@ It might be hard to do these things at first, but they'll make your college life
 ## Related Posts
 
 - [natural college girls](https://funny.allwomenstalk.com/lies-all-college-girls-tell-their-parents/)
+- [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
 - [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
+- [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
 - [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
 - [usopp bandages](https://money.allwomenstalk.com/things-a-woman-should-always-have-at-work/)
-- [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
 - [what every woman should know](https://lifestyle.allwomenstalk.com/things-every-woman-should-know-in-case-of-an-emergency/)
-- [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
-- [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
-- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
+- [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
 - [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
+- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
 - [10 Healthy Habits to Start in College ...](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [10 General Tips for High School Girls ...](https://allwomenstalk.com/10-general-tips-for-high-school-girls/)
 

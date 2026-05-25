@@ -44,16 +44,16 @@ What is the failure rate for your chosen course at your chosen college? Is the f
 
 ## Related Posts
 
-- [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [Choosing to Go Vegetarian as a Student ...](https://diet.allwomenstalk.com/choosing-to-go-vegetarian-as-a-student/)
 - [How to Get the Most out of a College Visit ...](https://lifestyle.allwomenstalk.com/how-to-get-the-most-out-of-a-college-visit/)
-- [good affordable colleges](https://money.allwomenstalk.com/the-most-affordable-colleges-in-the-usa/)
-- [healthy habits for college students](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [6 Tips for Managing the Stress of Nursing School ....](https://lifestyle.allwomenstalk.com/tips-for-managing-the-stress-of-nursing-school/)
 - [Back to School in Style - A Guide to Looking and F...](https://allwomenstalk.com/back-to-school-in-style-guide/)
 - [15 Top-Tier Universities in the USA Every Aspiring...](https://lifestyle.allwomenstalk.com/most-prestigious-universities-usa/)
 - [citizens reward program ohio](https://parenting.allwomenstalk.com/7-rewards-programs-to-help-your-school/)
 - [8 ways you can cut the cost of college](https://money.allwomenstalk.com/ways-to-cut-the-cost-of-college/)
+- [good affordable colleges](https://money.allwomenstalk.com/the-most-affordable-colleges-in-the-usa/)
+- [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
+- [healthy habits for college students](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 - [7 Things to Consider before Picking a College](https://allwomenstalk.com/things-to-consider-before-picking-a-college/)
 

@@ -42,15 +42,15 @@ It probably hurts even more when a friend turns on you than when someone you kno
 
 ## Related Posts
 
-- [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
-- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
-- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
 - [office rivalry](https://money.allwomenstalk.com/tips-on-how-to-deal-with-office-rivalry/)
+- [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
 - [how can you tell your boyfriend is cheating on you](https://love.allwomenstalk.com/gentle-ways-to-tell-your-friend-her-boyfriend-is-cheating/)
 - [how to get on your teachers good side](https://teen.allwomenstalk.com/tips-on-how-to-get-on-your-professors-good-side/)
-- [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
-- [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
+- [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
 - [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
+- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
+- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
+- [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
 - [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Cope when You Cant Get along with Someon...](https://allwomenstalk.com/7-ways-to-cope-when-you-cant-get-along-with-someone/)

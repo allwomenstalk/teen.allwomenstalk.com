@@ -42,16 +42,16 @@ Teenage relationships are often described as insignificant but they are the ones
 
 ## Related Posts
 
-- [crazy relationship](https://love.allwomenstalk.com/ways-to-avoid-being-a-crazy-girlfriend/)
-- [how to make your brother be nice to you](https://lifestyle.allwomenstalk.com/breakthroughs-to-rekindle-your-relationship-with-your-brother/)
-- [dating superstitions](https://love.allwomenstalk.com/real-yet-strange-dating-superstitions/)
-- [ruins of temptation](https://love.allwomenstalk.com/temptations-that-ruin-relationships-for-good/)
+- [peramitors](https://love.allwomenstalk.com/old-fashioned-marriage-rules-its-okay-to-break/)
+- [Dating Sucks but Being Single Sucks More ...](https://love.allwomenstalk.com/reasons-being-single-sucks/)
 - [what should a boyfriend do in a relationship](https://love.allwomenstalk.com/roles-your-partner-must-play-in-a-successful-relationship/)
 - [dating a touring musician](https://love.allwomenstalk.com/things-to-consider-when-dating-a-musician/)
+- [dating superstitions](https://love.allwomenstalk.com/real-yet-strange-dating-superstitions/)
+- [how to make your brother be nice to you](https://lifestyle.allwomenstalk.com/breakthroughs-to-rekindle-your-relationship-with-your-brother/)
 - [how to date an athlete](https://love.allwomenstalk.com/things-to-consider-when-dating-an-athlete/)
-- [peramitors](https://love.allwomenstalk.com/old-fashioned-marriage-rules-its-okay-to-break/)
 - [enjoying the single life](https://love.allwomenstalk.com/ways-to-enjoy-the-single-life/)
-- [Dating Sucks but Being Single Sucks More ...](https://love.allwomenstalk.com/reasons-being-single-sucks/)
+- [crazy relationship](https://love.allwomenstalk.com/ways-to-avoid-being-a-crazy-girlfriend/)
+- [ruins of temptation](https://love.allwomenstalk.com/temptations-that-ruin-relationships-for-good/)
 - [7 Daily Relationship Tips for Your Children ...](https://parenting.allwomenstalk.com/7-daily-relationship-tips-for-your-children/)
 - [8 Tips on How to Fix a Relationship ...](https://love.allwomenstalk.com/tips-on-how-to-fix-a-relationship/)
 

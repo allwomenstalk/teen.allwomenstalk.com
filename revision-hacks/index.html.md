@@ -28,15 +28,15 @@ Try drawing out a bunch of different mind maps relating to your exam subjects. N
 
 ## Related Posts
 
-- [steps in making time plan](https://lifestyle.allwomenstalk.com/a-three-step-plan-for-student-time-management/)
-- [poses for 5 friends](https://teen.allwomenstalk.com/how-to-make-college-the-best-years-of-your-life/)
-- [how to stay organized during the school year](https://teen.allwomenstalk.com/pro-tips-to-stay-organized-during-the-school-year/)
-- [things to consider when buying a laptop for colleg...](https://lifestyle.allwomenstalk.com/key-considerations-when-buying-a-student-laptop/)
-- [how to deal with college rejection](https://teen.allwomenstalk.com/essential-tips-for-how-to-deal-with-college-rejection/)
-- [how to respond to hows it going](https://teen.allwomenstalk.com/how-to-respond-to-the-hows-college-question-when-you-hate-college/)
 - [things to look for in college](https://teen.allwomenstalk.com/awesome-things-to-look-forward-to-in-college/)
-- [bene dorm](https://lifestyle.allwomenstalk.com/benefits-of-living-in-a-dorm-at-college/)
+- [how to stay organized during the school year](https://teen.allwomenstalk.com/pro-tips-to-stay-organized-during-the-school-year/)
 - [preparing for university](https://teen.allwomenstalk.com/how-to-prepare-yourself-for-university/)
+- [how to respond to hows it going](https://teen.allwomenstalk.com/how-to-respond-to-the-hows-college-question-when-you-hate-college/)
+- [how to deal with college rejection](https://teen.allwomenstalk.com/essential-tips-for-how-to-deal-with-college-rejection/)
+- [things to consider when buying a laptop for colleg...](https://lifestyle.allwomenstalk.com/key-considerations-when-buying-a-student-laptop/)
+- [poses for 5 friends](https://teen.allwomenstalk.com/how-to-make-college-the-best-years-of-your-life/)
+- [steps in making time plan](https://lifestyle.allwomenstalk.com/a-three-step-plan-for-student-time-management/)
+- [bene dorm](https://lifestyle.allwomenstalk.com/benefits-of-living-in-a-dorm-at-college/)
 - [article about student life](https://lifestyle.allwomenstalk.com/powerful-tips-for-living-a-simple-student-life/)
 - [10 Top Tips on Getting Ready for Exams ...](https://allwomenstalk.com/10-top-tips-on-getting-ready-for-exams/)
 - [7 Tips for Passing All Your Classes This Semester ...](https://inspiration.allwomenstalk.com/tips-for-passing-all-your-classes-this-semester/)

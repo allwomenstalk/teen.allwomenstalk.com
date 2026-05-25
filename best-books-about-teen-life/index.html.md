@@ -56,16 +56,16 @@ What’s your favorite book about being a teen? Currently, my favorite is The Fa
 
 ## Related Posts
 
-- [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
-- [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
-- [most famous romance novelists](https://books.allwomenstalk.com/of-the-greatest-romance-writers/)
-- [best books on ww1](https://books.allwomenstalk.com/most-excellent-novels-set-in-the-first-world-war/)
-- [paris le smoky shadow conquest](https://parenting.allwomenstalk.com/great-chapter-books-to-read-with-your-children-over-the-summer/)
-- [whats the longest book ever](https://books.allwomenstalk.com/longest-novels-you-will-ever-stumble-upon/)
-- [a classic tale](https://books.allwomenstalk.com/famous-classic-tales-and-the-lessons-they-teach-us/)
-- [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
 - [jane austen movie adaptations](https://movies.allwomenstalk.com/best-adaptations-of-jane-austen-novels/)
+- [paris le smoky shadow conquest](https://parenting.allwomenstalk.com/great-chapter-books-to-read-with-your-children-over-the-summer/)
+- [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
+- [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
+- [best books on ww1](https://books.allwomenstalk.com/most-excellent-novels-set-in-the-first-world-war/)
+- [most famous romance novelists](https://books.allwomenstalk.com/of-the-greatest-romance-writers/)
 - [eco friendly books](https://books.allwomenstalk.com/great-books-about-eco-friendly-living/)
+- [a classic tale](https://books.allwomenstalk.com/famous-classic-tales-and-the-lessons-they-teach-us/)
+- [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
+- [whats the longest book ever](https://books.allwomenstalk.com/longest-novels-you-will-ever-stumble-upon/)
 - [7 Great Books about Dating ...](https://love.allwomenstalk.com/great-books-about-dating/)
 - [8 Great Book Series for Tweens ...](https://allwomenstalk.com/8-great-book-series-for-tweens/)
 

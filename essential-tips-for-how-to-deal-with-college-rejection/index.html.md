@@ -32,16 +32,16 @@ If you feel like you really were the perfect fit and had all of the required tes
 
 ## Related Posts
 
-- [steps in making time plan](https://lifestyle.allwomenstalk.com/a-three-step-plan-for-student-time-management/)
+- [poses for 5 friends](https://teen.allwomenstalk.com/how-to-make-college-the-best-years-of-your-life/)
 - [how to respond to hows it going](https://teen.allwomenstalk.com/how-to-respond-to-the-hows-college-question-when-you-hate-college/)
-- [how to stay organized during the school year](https://teen.allwomenstalk.com/pro-tips-to-stay-organized-during-the-school-year/)
-- [timed essay](https://lifestyle.allwomenstalk.com/writing-college-essays-is-a-phenomenal-waste-of-your-time/)
+- [steps in making time plan](https://lifestyle.allwomenstalk.com/a-three-step-plan-for-student-time-management/)
+- [things to consider when buying a laptop for colleg...](https://lifestyle.allwomenstalk.com/key-considerations-when-buying-a-student-laptop/)
 - [preparing for university](https://teen.allwomenstalk.com/how-to-prepare-yourself-for-university/)
-- [article about student life](https://lifestyle.allwomenstalk.com/powerful-tips-for-living-a-simple-student-life/)
 - [things to look for in college](https://teen.allwomenstalk.com/awesome-things-to-look-forward-to-in-college/)
 - [bene dorm](https://lifestyle.allwomenstalk.com/benefits-of-living-in-a-dorm-at-college/)
-- [poses for 5 friends](https://teen.allwomenstalk.com/how-to-make-college-the-best-years-of-your-life/)
-- [things to consider when buying a laptop for colleg...](https://lifestyle.allwomenstalk.com/key-considerations-when-buying-a-student-laptop/)
+- [timed essay](https://lifestyle.allwomenstalk.com/writing-college-essays-is-a-phenomenal-waste-of-your-time/)
+- [how to stay organized during the school year](https://teen.allwomenstalk.com/pro-tips-to-stay-organized-during-the-school-year/)
+- [article about student life](https://lifestyle.allwomenstalk.com/powerful-tips-for-living-a-simple-student-life/)
 - [10 General Tips for High School Girls ...](https://allwomenstalk.com/10-general-tips-for-high-school-girls/)
 - [9 Helpful Tips on How to Get over Your Shyness ...](https://lifestyle.allwomenstalk.com/helpful-tips-on-how-to-get-over-your-shyness/)
 

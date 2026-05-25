@@ -42,16 +42,16 @@ We all want to be respected; no one likes the feeling of being pushed around or 
 
 ## Related Posts
 
-- [put someone in their place](https://lifestyle.allwomenstalk.com/polite-ways-to-put-pretentious-people-in-their-place/)
-- [bashful meaning](https://lifestyle.allwomenstalk.com/ways-to-deal-with-hateful-people/)
-- [how to handle rumors](https://inspiration.allwomenstalk.com/empowering-ways-to-deal-with-rumors/)
 - [what does it mean when someone mimics you](https://inspiration.allwomenstalk.com/ways-to-deal-when-someone-constantly-imitates-you/)
-- [unwanted crush](https://love.allwomenstalk.com/tips-on-dealing-with-an-unwanted-crush/)
-- [how to reach a compromise](https://love.allwomenstalk.com/steps-to-help-you-reach-a-compromise-with-your-partner/)
 - [how to cope with embarrassing moments](https://lifestyle.allwomenstalk.com/ways-to-recover-from-an-embarrassing-moment-2/)
-- [famous angry tennis player](https://fitness.allwomenstalk.com/ways-to-control-anger-on-the-tennis-court/)
-- [outgoing person](https://inspiration.allwomenstalk.com/easy-ways-to-fake-an-outgoing-personality/)
+- [put someone in their place](https://lifestyle.allwomenstalk.com/polite-ways-to-put-pretentious-people-in-their-place/)
+- [how to handle rumors](https://inspiration.allwomenstalk.com/empowering-ways-to-deal-with-rumors/)
+- [how to reach a compromise](https://love.allwomenstalk.com/steps-to-help-you-reach-a-compromise-with-your-partner/)
 - [is spreading rumors bullying](https://teen.allwomenstalk.com/ways-to-deal-with-rumors/)
+- [bashful meaning](https://lifestyle.allwomenstalk.com/ways-to-deal-with-hateful-people/)
+- [outgoing person](https://inspiration.allwomenstalk.com/easy-ways-to-fake-an-outgoing-personality/)
+- [unwanted crush](https://love.allwomenstalk.com/tips-on-dealing-with-an-unwanted-crush/)
+- [famous angry tennis player](https://fitness.allwomenstalk.com/ways-to-control-anger-on-the-tennis-court/)
 - [7 Positive Tips to Avoid Peer Pressure ...](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 

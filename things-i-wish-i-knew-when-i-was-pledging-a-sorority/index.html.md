@@ -50,16 +50,16 @@ Sorority recruitment was such a fun experience for me. And after being on the ot
 
 ## Related Posts
 
-- [how to stand out in your college application](https://teen.allwomenstalk.com/ways-to-make-your-college-application-stand-out/)
-- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
-- [feel at home special school](https://teen.allwomenstalk.com/very-useful-tips-on-how-to-feel-at-home-at-a-new-school/)
-- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
-- [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
-- [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
-- [should i go away for college](https://teen.allwomenstalk.com/reasons-to-move-away-for-college/)
 - [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
-- [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
+- [feel at home special school](https://teen.allwomenstalk.com/very-useful-tips-on-how-to-feel-at-home-at-a-new-school/)
+- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
+- [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
 - [teachers essay writing](https://teen.allwomenstalk.com/ways-to-write-an-essay-your-english-teacher-will-love-reading/)
+- [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
+- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
+- [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
+- [should i go away for college](https://teen.allwomenstalk.com/reasons-to-move-away-for-college/)
+- [how to stand out in your college application](https://teen.allwomenstalk.com/ways-to-make-your-college-application-stand-out/)
 - [8 Things Ive Learned from Gossip Girl ...](https://movies.allwomenstalk.com/things-ive-learned-from-gossip-girl/)
 - [9 Bridesmaid Duties You Should Know about ...](https://lifestyle.allwomenstalk.com/bridesmaid-duties-you-should-know-about/)
 

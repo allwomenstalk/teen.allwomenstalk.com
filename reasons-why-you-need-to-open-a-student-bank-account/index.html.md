@@ -42,16 +42,16 @@ If you're a teen and you haven't opened your first bank account, now’s the tim
 
 ## Related Posts
 
-- [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
-- [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
 - [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
-- [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
-- [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
-- [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
-- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
-- [ask to borrow money](https://money.allwomenstalk.com/questions-to-ask-before-lending-your-friends-money/)
-- [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
 - [best paying jobs for teens](https://money.allwomenstalk.com/ways-to-make-money-if-youre-too-young-for-a-job/)
+- [ask to borrow money](https://money.allwomenstalk.com/questions-to-ask-before-lending-your-friends-money/)
+- [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
+- [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
+- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
+- [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
+- [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
+- [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
+- [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 - [10 Ways to save Money for College ...](https://allwomenstalk.com/10-ways-to-save-money-for-college/)
 

@@ -42,16 +42,16 @@ A college schedule can be brutal and overwhelming, but you can succeed. The abov
 
 ## Related Posts
 
-- [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
 - [Heres the Only Guide You Need to Picking Your Coll...](https://teen.allwomenstalk.com/heres-the-only-guide-you-need-to-picking-your-college-major/)
-- [Apps That Will Make You More Productive at College...](https://apps.allwomenstalk.com/apps-that-will-make-you-more-productive-at-college/)
-- [7 Things Every Busy Student Understands ...](https://teen.allwomenstalk.com/things-every-busy-student-understands/)
-- [How You Differ from the Typical College Student .....](https://teen.allwomenstalk.com/how-you-differ-from-the-typical-college-student/)
-- [How to Juggle Work and School without Going Insane...](https://lifestyle.allwomenstalk.com/how-to-juggle-work-and-school-without-going-insane/)
 - [The 30 Healthiest US Colleges ... According to Tak...](https://lifestyle.allwomenstalk.com/the-healthiest-us-colleges-according-to-takeout-stats/)
 - [what college did lip go to](https://lifestyle.allwomenstalk.com/what-every-college-girl-does-to-procrastinate/)
-- [high school regrets](https://teen.allwomenstalk.com/how-to-survive-high-school-without-regrets/)
+- [Apps That Will Make You More Productive at College...](https://apps.allwomenstalk.com/apps-that-will-make-you-more-productive-at-college/)
+- [How You Differ from the Typical College Student .....](https://teen.allwomenstalk.com/how-you-differ-from-the-typical-college-student/)
+- [7 Things Every Busy Student Understands ...](https://teen.allwomenstalk.com/things-every-busy-student-understands/)
 - [Here Are the Best Jobs for College Students to Loo...](https://money.allwomenstalk.com/here-are-the-best-jobs-for-college-students/)
+- [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
+- [How to Juggle Work and School without Going Insane...](https://lifestyle.allwomenstalk.com/how-to-juggle-work-and-school-without-going-insane/)
+- [high school regrets](https://teen.allwomenstalk.com/how-to-survive-high-school-without-regrets/)
 - [7 Simple Secrets of Success ...](https://lifestyle.allwomenstalk.com/simple-secrets-of-success/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 

@@ -43,15 +43,15 @@ What are your tips for picking a college major? Are you going through that right
 ## Related Posts
 
 - [How You Differ from the Typical College Student .....](https://teen.allwomenstalk.com/how-you-differ-from-the-typical-college-student/)
-- [What Should Your College Major and Career Be](https://money.allwomenstalk.com/what-should-your-college-major-and-career-be/)
-- [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
-- [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
-- [riche primped and previous](https://lifestyle.allwomenstalk.com/things-everyone-who-is-leaving-for-college-should-know/)
-- [Infographics to Help Struggling Students Ace an Im...](https://teen.allwomenstalk.com/infographics-for-students-who-need-to-ace-a-paper/)
-- [How to Juggle Work and School without Going Insane...](https://lifestyle.allwomenstalk.com/how-to-juggle-work-and-school-without-going-insane/)
 - [Apps That Will Make You More Productive at College...](https://apps.allwomenstalk.com/apps-that-will-make-you-more-productive-at-college/)
+- [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
+- [What Should Your College Major and Career Be](https://money.allwomenstalk.com/what-should-your-college-major-and-career-be/)
+- [How to Juggle Work and School without Going Insane...](https://lifestyle.allwomenstalk.com/how-to-juggle-work-and-school-without-going-insane/)
 - [How College Prepares You for the Real World in Uni...](https://teen.allwomenstalk.com/how-college-prepares-you-for-the-real-world-in-unimaginable-ways/)
 - [what college did lip go to](https://lifestyle.allwomenstalk.com/what-every-college-girl-does-to-procrastinate/)
+- [Infographics to Help Struggling Students Ace an Im...](https://teen.allwomenstalk.com/infographics-for-students-who-need-to-ace-a-paper/)
+- [riche primped and previous](https://lifestyle.allwomenstalk.com/things-everyone-who-is-leaving-for-college-should-know/)
+- [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
 - [8 Ways to Get a Head Start on Your College Search ...](https://lifestyle.allwomenstalk.com/ways-to-get-a-head-start-on-your-college-search/)
 - [Consider These Things when Choosing Your Major ...](https://teen.allwomenstalk.com/things-to-think-of-when-choosing-a-major/)
 

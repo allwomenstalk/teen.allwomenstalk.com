@@ -56,16 +56,16 @@ Clubs are an important part of your high school experience, and you won't enjoy 
 
 ## Related Posts
 
-- [7 effective study habits](https://teen.allwomenstalk.com/tips-on-how-to-create-good-study-habits-that-will-help-you-pass-all-the-exams/)
-- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
 - [9 things in the world](https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/)
-- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
-- [good health habits for students](https://teen.allwomenstalk.com/healthy-habits-to-start-in-high-school/)
-- [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
-- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
 - [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
+- [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
 - [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
 - [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
+- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
+- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
+- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
+- [good health habits for students](https://teen.allwomenstalk.com/healthy-habits-to-start-in-high-school/)
+- [7 effective study habits](https://teen.allwomenstalk.com/tips-on-how-to-create-good-study-habits-that-will-help-you-pass-all-the-exams/)
 - [7 Rewards Programs to Help Your School ...](https://parenting.allwomenstalk.com/7-rewards-programs-to-help-your-school/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 

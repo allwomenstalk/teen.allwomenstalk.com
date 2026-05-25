@@ -56,16 +56,16 @@ What quotes do you think of when you’re looking for inspiration in school? The
 
 ## Related Posts
 
-- [7 Inspirational People Who Will Change Your Outloo...](https://inspiration.allwomenstalk.com/inspirational-people-who-will-change-your-outlook/)
-- [happiness thought of the day](https://inspiration.allwomenstalk.com/quotes-about-happiness-that-will-drive-away-your-blues/)
 - [words for meditate](https://inspiration.allwomenstalk.com/single-inspirational-words-to-meditate-on/)
-- [best quotes by confucius](https://inspiration.allwomenstalk.com/philosophical-quotes-from-confucius/)
-- [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
-- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
-- [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
-- [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
 - [famous thoreau quotes](https://inspiration.allwomenstalk.com/contemplative-quotes-from-henry-david-thoreau-that-are-thought-provoking/)
+- [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
+- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
+- [happiness thought of the day](https://inspiration.allwomenstalk.com/quotes-about-happiness-that-will-drive-away-your-blues/)
+- [7 Inspirational People Who Will Change Your Outloo...](https://inspiration.allwomenstalk.com/inspirational-people-who-will-change-your-outlook/)
+- [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
+- [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
 - [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
+- [best quotes by confucius](https://inspiration.allwomenstalk.com/philosophical-quotes-from-confucius/)
 - [9 Tips for an Extraordinary School Year ...](https://allwomenstalk.com/9-tips-for-an-extraordinary-school-year/)
 - [9 Ways to Have a Better School Year ...](https://lifestyle.allwomenstalk.com/ways-to-have-a-better-school-year/)
 

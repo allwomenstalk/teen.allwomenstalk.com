@@ -184,16 +184,16 @@ What do you love most about being in college? Which of these infographics is goi
 
 ## Related Posts
 
-- [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
-- [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
-- [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
-- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
 - [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
+- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
+- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
+- [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
+- [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
+- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
 - [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
 - [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
-- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
-- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
+- [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
 - [7 Easy Ways to Make Money in College without Worki...](https://money.allwomenstalk.com/easy-ways-to-make-money-in-college-without-working-your-life-away/)
 - [Things You Need to do before Heading off to Colleg...](https://teen.allwomenstalk.com/things-to-do-before-heading-off-to-college/)
 

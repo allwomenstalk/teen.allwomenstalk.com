@@ -82,16 +82,16 @@ Did you learn any unexpectedly practical lessons in college?
 
 ## Related Posts
 
+- [riche primped and previous](https://lifestyle.allwomenstalk.com/things-everyone-who-is-leaving-for-college-should-know/)
 - [100 Things Youll Need if You Are Packing for Colle...](https://lifestyle.allwomenstalk.com/things-youll-need-if-you-are-packing-for-college/)
+- [Want to Study Abroad but Dont Know Where  Check Th...](https://travel.allwomenstalk.com/want-to-study-abroad-but-dont-know-where/)
+- [Town Helps Homeless Teen Go to College ...](https://teen.allwomenstalk.com/town-helps-homeless-teen-go-to-college/)
+- [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
+- [How to Create a Study Schedule for Girls New to Co...](https://teen.allwomenstalk.com/how-to-create-a-study-schedule-for-girls-new-to-college/)
 - [Infographics to Help Struggling Students Ace an Im...](https://teen.allwomenstalk.com/infographics-for-students-who-need-to-ace-a-paper/)
 - [The Best Reasons High School Grads Should Consider...](https://teen.allwomenstalk.com/jolly-good-reasons-for-high-school-grads-to-consider-community-college/)
-- [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
-- [riche primped and previous](https://lifestyle.allwomenstalk.com/things-everyone-who-is-leaving-for-college-should-know/)
 - [Backpack Essentials for College Students  ...](https://bags.allwomenstalk.com/the-things-college-students-should-have-in-their-backpack/)
-- [Want to Study Abroad but Dont Know Where  Check Th...](https://travel.allwomenstalk.com/want-to-study-abroad-but-dont-know-where/)
 - [Handy Tips for College Freshers to Survive Shared ...](https://teen.allwomenstalk.com/handy-tips-for-college-freshers-to-survive-shared-bathrooms/)
-- [How to Create a Study Schedule for Girls New to Co...](https://teen.allwomenstalk.com/how-to-create-a-study-schedule-for-girls-new-to-college/)
-- [Town Helps Homeless Teen Go to College ...](https://teen.allwomenstalk.com/town-helps-homeless-teen-go-to-college/)
 - [7 Easy Ways to Make Money in College without Worki...](https://money.allwomenstalk.com/easy-ways-to-make-money-in-college-without-working-your-life-away/)
 - [7 Reasons to Take a Gap Year before College ...](https://teen.allwomenstalk.com/reasons-to-take-a-gap-year-before-college/)
 

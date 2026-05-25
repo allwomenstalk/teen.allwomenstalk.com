@@ -42,16 +42,16 @@ I think that in a world that is so unequal and gendered, it’s good to have wom
 
 ## Related Posts
 
-- [grateful for everything](https://inspiration.allwomenstalk.com/reasons-to-be-grateful-for-everything-in-your-life/)
 - [get involved on campus](https://lifestyle.allwomenstalk.com/reasons-to-get-involved-on-campus/)
-- [first class flights with beds price](https://travel.allwomenstalk.com/reasons-first-class-flights-cost-so-much/)
-- [reasons to learn chinese](https://lifestyle.allwomenstalk.com/reasons-to-learn-mandarin-chinese/)
-- [living in the bay](https://travel.allwomenstalk.com/reasons-why-you-should-move-to-the-bay-area/)
-- [violin player images](https://music.allwomenstalk.com/awesome-benefits-of-playing-the-violin/)
 - [benefits of being present](https://inspiration.allwomenstalk.com/advantages-of-being-a-present-minded-person/)
+- [violin player images](https://music.allwomenstalk.com/awesome-benefits-of-playing-the-violin/)
+- [grateful for everything](https://inspiration.allwomenstalk.com/reasons-to-be-grateful-for-everything-in-your-life/)
 - [spirituality meaning](https://inspiration.allwomenstalk.com/reasons-why-spirituality-is-important/)
 - [why 30s are the best years](https://lifestyle.allwomenstalk.com/great-reasons-to-look-forward-to-your-30s/)
+- [living in the bay](https://travel.allwomenstalk.com/reasons-why-you-should-move-to-the-bay-area/)
 - [take tours](https://travel.allwomenstalk.com/reasons-to-take-a-guided-tour/)
+- [first class flights with beds price](https://travel.allwomenstalk.com/reasons-first-class-flights-cost-so-much/)
+- [reasons to learn chinese](https://lifestyle.allwomenstalk.com/reasons-to-learn-mandarin-chinese/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 - [7 Reasons I Love College as an Adult ...](https://allwomenstalk.com/7-reasons-i-love-college-as-an-adult/)
 

@@ -42,16 +42,16 @@ Your experience at a university should be a fun time in your life, but before yo
 
 ## Related Posts
 
-- [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
-- [Everything You Need to Know about Writing a Schola...](https://teen.allwomenstalk.com/tips-for-writing-a-scholarship-essay/)
-- [Beware of These Difficulties when Youre Studying f...](https://money.allwomenstalk.com/difficulties-you-can-encounter-when-studying-for-an-online-degree/)
-- [7 Tips on How to Build a Resume when in High Schoo...](https://teen.allwomenstalk.com/tips-on-how-to-build-a-resume-when-in-high-school/)
-- [Sweet Dreams and Good Grades: How to Sleep Better ...](https://teen.allwomenstalk.com/ways-to-sleep-better-in-college/)
-- [Read This if You Need Help with the Common Applica...](https://teen.allwomenstalk.com/tips-for-understanding-the-common-application/)
-- [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
 - [7 Tips on How to Get Financial Aid in College ...](https://money.allwomenstalk.com/tips-on-how-to-get-financial-aid-in-college/)
+- [Everything You Need to Know about Writing a Schola...](https://teen.allwomenstalk.com/tips-for-writing-a-scholarship-essay/)
+- [Read This if You Need Help with the Common Applica...](https://teen.allwomenstalk.com/tips-for-understanding-the-common-application/)
 - [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
 - [Get Some Help with Narrowing down Your College Lis...](https://teen.allwomenstalk.com/helpful-tips-for-narrowing-down-your-college-list/)
+- [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
+- [Sweet Dreams and Good Grades: How to Sleep Better ...](https://teen.allwomenstalk.com/ways-to-sleep-better-in-college/)
+- [Beware of These Difficulties when Youre Studying f...](https://money.allwomenstalk.com/difficulties-you-can-encounter-when-studying-for-an-online-degree/)
+- [7 Tips on How to Build a Resume when in High Schoo...](https://teen.allwomenstalk.com/tips-on-how-to-build-a-resume-when-in-high-school/)
+- [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
 - [9 Useful Tips for the College Student ...](https://allwomenstalk.com/9-useful-tips-for-the-college-student/)
 - [10 Things to Learn How to do before Starting Colle...](https://lifestyle.allwomenstalk.com/things-to-learn-how-to-do-before-starting-college/)
 

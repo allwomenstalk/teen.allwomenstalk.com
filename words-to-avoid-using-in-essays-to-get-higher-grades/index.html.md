@@ -42,16 +42,16 @@ Your word choice can make or break your essay. It won't change your F to an A, b
 
 ## Related Posts
 
-- [what not to wear on a date](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-first-date/)
-- [embarrassing school photos](https://lifestyle.allwomenstalk.com/embarrassing-high-school-situations-you-never-mention-in-your-adult-life/)
 - [couples making out in public](https://love.allwomenstalk.com/things-couples-shouldnt-do-in-public/)
-- [unhygienic things](https://health.allwomenstalk.com/unhygienic-things-you-do-every-day/)
-- [what happens if you put nail polish on your skin](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face/)
 - [things considered cheating](https://love.allwomenstalk.com/tiny-things-that-count-as-cheating/)
 - [little things to get your boyfriend](https://love.allwomenstalk.com/frustrating-little-things-you-do-that-your-boyfriend-hates/)
-- [meanest things to say to a guy](https://love.allwomenstalk.com/of-the-worst-things-your-guy-can-say/)
+- [embarrassing school photos](https://lifestyle.allwomenstalk.com/embarrassing-high-school-situations-you-never-mention-in-your-adult-life/)
 - [keep people in your life](https://lifestyle.allwomenstalk.com/people-to-keep-out-of-your-life/)
 - [embarrassing songs in public](https://music.allwomenstalk.com/awkward-songs-you-should-never-sing-in-public/)
+- [what happens if you put nail polish on your skin](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face/)
+- [what not to wear on a date](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-first-date/)
+- [unhygienic things](https://health.allwomenstalk.com/unhygienic-things-you-do-every-day/)
+- [meanest things to say to a guy](https://love.allwomenstalk.com/of-the-worst-things-your-guy-can-say/)
 - [7 Ways to Ruin Your Resume ...](https://allwomenstalk.com/7-ways-to-ruin-your-resume/)
 - [5 Things You Want to Avoid ...](https://allwomenstalk.com/5-things-you-want-to-avoid/)
 

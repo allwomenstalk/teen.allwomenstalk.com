@@ -42,16 +42,16 @@ These are some ways to bond with your parents that I actually practice and have 
 
 ## Related Posts
 
-- [kids playing in the playground](https://fitness.allwomenstalk.com/exercises-you-can-do-at-the-playground-while-your-kids-play/)
-- [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
 - [hows your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
-- [grocery store tantrum](https://parenting.allwomenstalk.com/ways-to-avoid-toddler-tantrums-in-the-grocery-store/)
-- [aspirations for your child](https://parenting.allwomenstalk.com/ways-to-help-your-child-achieve-their-future-goals-and-aspirations/)
+- [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
 - [babysitting kids games](https://teen.allwomenstalk.com/go-to-babysitting-games-to-entertain-the-kids/)
-- [storytelling style](https://parenting.allwomenstalk.com/storytelling-styles-that-kids-enjoy/)
+- [missing grandparents](https://parenting.allwomenstalk.com/ways-to-fill-in-the-gaps-left-by-far-away-or-missing-grandparents/)
+- [grocery store tantrum](https://parenting.allwomenstalk.com/ways-to-avoid-toddler-tantrums-in-the-grocery-store/)
+- [kids playing in the playground](https://fitness.allwomenstalk.com/exercises-you-can-do-at-the-playground-while-your-kids-play/)
 - [computers games for toddlers](https://parenting.allwomenstalk.com/games-children-used-before-technology-came-along/)
 - [wearing activities](https://parenting.allwomenstalk.com/activities-that-your-kids-should-wear-a-helmet-for/)
-- [missing grandparents](https://parenting.allwomenstalk.com/ways-to-fill-in-the-gaps-left-by-far-away-or-missing-grandparents/)
+- [storytelling style](https://parenting.allwomenstalk.com/storytelling-styles-that-kids-enjoy/)
+- [aspirations for your child](https://parenting.allwomenstalk.com/ways-to-help-your-child-achieve-their-future-goals-and-aspirations/)
 - [7 Ways to Bond with Your Stepchildren ...](https://parenting.allwomenstalk.com/ways-to-bond-with-your-stepchildren/)
 - [How to Build a Stronger Relationship with Parents ...](https://allwomenstalk.com/how-to-build-a-stronger-relationship-with-parents-2/)
 

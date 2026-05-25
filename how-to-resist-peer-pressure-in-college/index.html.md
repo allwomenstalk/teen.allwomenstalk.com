@@ -42,16 +42,16 @@ There’s nothing wrong with having fun in college, but if you feel like you’r
 
 ## Related Posts
 
-- [what does freshman 15 mean](https://weightloss.allwomenstalk.com/how-the-freshman-can-sneak-up-on-you/)
 - [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
-- [hacks for students](https://lifestyle.allwomenstalk.com/life-hacks-that-every-student-should-know/)
-- [useful websites for college students](https://lifestyle.allwomenstalk.com/websites-that-all-college-students-should-bookmark/)
 - [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
-- [easy college girls](https://teen.allwomenstalk.com/easy-ways-to-make-friends-for-fresher-girls-off-to-college/)
-- [moving out of dorm hacks](https://lifestyle.allwomenstalk.com/professional-hacks-for-a-super-smooth-college-moving-in-day/)
-- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
 - [sparknotes com](https://lifestyle.allwomenstalk.com/websites-like-spark-notes-thatll-help-you-in-school/)
+- [moving out of dorm hacks](https://lifestyle.allwomenstalk.com/professional-hacks-for-a-super-smooth-college-moving-in-day/)
 - [best college girls](https://teen.allwomenstalk.com/college-alternatives-for-girls-not-ready-to-settle-down-on-a-school-yet/)
+- [what does freshman 15 mean](https://weightloss.allwomenstalk.com/how-the-freshman-can-sneak-up-on-you/)
+- [easy college girls](https://teen.allwomenstalk.com/easy-ways-to-make-friends-for-fresher-girls-off-to-college/)
+- [hacks for students](https://lifestyle.allwomenstalk.com/life-hacks-that-every-student-should-know/)
+- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
+- [useful websites for college students](https://lifestyle.allwomenstalk.com/websites-that-all-college-students-should-bookmark/)
 - [7 Tips on Finding Motivation to Go to College ...](https://allwomenstalk.com/7-tips-on-finding-motivation-to-go-to-college/)
 - [8 Great Ways to Stay Motivated in College ...](https://lifestyle.allwomenstalk.com/great-ways-to-stay-motivated-in-college/)
 

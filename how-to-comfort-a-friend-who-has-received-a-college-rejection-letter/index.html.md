@@ -32,16 +32,16 @@ People can feel a lot of shame about being rejected from their dream college, an
 
 ## Related Posts
 
-- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
-- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
-- [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
-- [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
-- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
-- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
-- [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
 - [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
+- [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
+- [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
 - [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
 - [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
+- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
+- [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
+- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
+- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
+- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
 - [How to Help a Family Member Suffering from Depress...](https://health.allwomenstalk.com/tips-on-how-to-deal-with-a-depressed-family-member/)
 - [Let These Quotes Help You Cope with Rejection ...](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 

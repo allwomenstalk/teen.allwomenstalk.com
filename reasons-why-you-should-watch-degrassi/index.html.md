@@ -42,16 +42,16 @@ As mentioned before, Degrassi is not an award-winning show, but it has a very ad
 
 ## Related Posts
 
-- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
-- [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
-- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
-- [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
-- [i want to become a mermaid](https://funny.allwomenstalk.com/reasons-why-being-a-mermaid-would-be-awesome/)
-- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
-- [where to watch riot](https://movies.allwomenstalk.com/awesome-reasons-to-watch-riot-on-fox/)
-- [listen to us the duo no matter where you are](https://music.allwomenstalk.com/fantastic-reasons-to-listen-to-us-the-duo/)
-- [how many pages are in the fault in our stars](https://books.allwomenstalk.com/reasons-to-read-the-fault-in-our-stars/)
 - [chloe moretz smoking](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-chloe-moretz/)
+- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
+- [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
+- [how many pages are in the fault in our stars](https://books.allwomenstalk.com/reasons-to-read-the-fault-in-our-stars/)
+- [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
+- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
+- [listen to us the duo no matter where you are](https://music.allwomenstalk.com/fantastic-reasons-to-listen-to-us-the-duo/)
+- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
+- [where to watch riot](https://movies.allwomenstalk.com/awesome-reasons-to-watch-riot-on-fox/)
+- [i want to become a mermaid](https://funny.allwomenstalk.com/reasons-why-being-a-mermaid-would-be-awesome/)
 - [7 Reasons to Watch CSI ...](https://allwomenstalk.com/7-reasons-to-watch-csi/)
 - [7 Reasons to Watch the Game of Thrones ...](https://movies.allwomenstalk.com/reasons-to-watch-the-game-of-thrones/)
 

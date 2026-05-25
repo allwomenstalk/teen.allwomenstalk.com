@@ -42,15 +42,15 @@ I’m not a dietician, but I have had plenty of experience in dealing with my fo
 
 ## Related Posts
 
-- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
-- [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
-- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
 - [senior year of high school quotes](https://teen.allwomenstalk.com/quotes-to-keep-in-mind-during-senior-year/)
 - [problems in high school](https://teen.allwomenstalk.com/horrible-high-school-problems-you-wont-worry-about-in-college/)
-- [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
-- [why are ivy leagues so expensive](https://teen.allwomenstalk.com/benefits-of-an-ivy-league-education/)
+- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
 - [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
+- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
 - [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
+- [why are ivy leagues so expensive](https://teen.allwomenstalk.com/benefits-of-an-ivy-league-education/)
+- [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
+- [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
 - [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
 - [10 Pros and Cons for Going Gluten Free ...](https://health.allwomenstalk.com/pros-and-cons-for-going-gluten-free/)
 - [9 Signs You May Be Gluten Intolerant ...](https://health.allwomenstalk.com/signs-you-may-be-gluten-intolerant/)

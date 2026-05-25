@@ -50,16 +50,16 @@ No matter what else you do, just be yourself and respect your dormmates. These t
 
 ## Related Posts
 
-- [living in small apartment](https://lifestyle.allwomenstalk.com/ways-to-make-living-in-a-small-apartment-work/)
+- [how to buy a mattress pad](https://lifestyle.allwomenstalk.com/things-to-consider-when-buying-a-mattress-pad/)
 - [things to consider when emigrating](https://travel.allwomenstalk.com/things-to-consider-when-emigrating/)
 - [holiday accommodation](https://travel.allwomenstalk.com/holiday-accommodation-issues-and-how-to-deal-with-them/)
-- [moving into his house](https://love.allwomenstalk.com/tips-for-moving-into-your-partners-home/)
-- [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
 - [moving in with boyfriend quotes](https://love.allwomenstalk.com/great-reasons-to-wait-before-moving-in-with-your-boyfriend/)
-- [declaring noisy neighbours when selling](https://lifestyle.allwomenstalk.com/tips-for-living-next-to-noisy-neighbors/)
-- [how to buy a mattress pad](https://lifestyle.allwomenstalk.com/things-to-consider-when-buying-a-mattress-pad/)
-- [roommate houses for rent](https://money.allwomenstalk.com/practical-ways-to-save-on-rent-without-getting-a-roommate/)
+- [moving into his house](https://love.allwomenstalk.com/tips-for-moving-into-your-partners-home/)
 - [learn how to survive alone](https://lifestyle.allwomenstalk.com/important-lessons-you-learn-when-you-live-alone/)
+- [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
+- [living in small apartment](https://lifestyle.allwomenstalk.com/ways-to-make-living-in-a-small-apartment-work/)
+- [roommate houses for rent](https://money.allwomenstalk.com/practical-ways-to-save-on-rent-without-getting-a-roommate/)
+- [declaring noisy neighbours when selling](https://lifestyle.allwomenstalk.com/tips-for-living-next-to-noisy-neighbors/)
 - [10 Tips to Break the Ice with Someone New ...](https://allwomenstalk.com/10-tips-to-break-the-ice-with-someone-new/)
 - [8 Ways to Make New Friends ...](https://allwomenstalk.com/8-ways-to-make-new-friends/)
 

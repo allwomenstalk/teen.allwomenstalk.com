@@ -56,16 +56,16 @@ Do you feel like you're not the typical college student? Did you struggle with t
 
 ## Related Posts
 
-- [How to Juggle Work and School without Going Insane...](https://lifestyle.allwomenstalk.com/how-to-juggle-work-and-school-without-going-insane/)
-- [How College Prepares You for the Real World in Uni...](https://teen.allwomenstalk.com/how-college-prepares-you-for-the-real-world-in-unimaginable-ways/)
-- [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
+- [Want to Study Abroad but Dont Know Where  Check Th...](https://travel.allwomenstalk.com/want-to-study-abroad-but-dont-know-where/)
 - [Apps That Will Make You More Productive at College...](https://apps.allwomenstalk.com/apps-that-will-make-you-more-productive-at-college/)
+- [How College Prepares You for the Real World in Uni...](https://teen.allwomenstalk.com/how-college-prepares-you-for-the-real-world-in-unimaginable-ways/)
 - [what college did lip go to](https://lifestyle.allwomenstalk.com/what-every-college-girl-does-to-procrastinate/)
+- [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
 - [What Should Your College Major and Career Be](https://money.allwomenstalk.com/what-should-your-college-major-and-career-be/)
 - [Infographics to Help Struggling Students Ace an Im...](https://teen.allwomenstalk.com/infographics-for-students-who-need-to-ace-a-paper/)
-- [Want to Study Abroad but Dont Know Where  Check Th...](https://travel.allwomenstalk.com/want-to-study-abroad-but-dont-know-where/)
+- [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
+- [How to Juggle Work and School without Going Insane...](https://lifestyle.allwomenstalk.com/how-to-juggle-work-and-school-without-going-insane/)
 - [riche primped and previous](https://lifestyle.allwomenstalk.com/things-everyone-who-is-leaving-for-college-should-know/)
-- [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
 - [10 Healthy Habits to Start in College ...](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [Then and Now: 8 Ways College Life Has Changed Dram...](https://allwomenstalk.com/then-and-now-8-ways-college-life-has-changed-dramatically/)
 

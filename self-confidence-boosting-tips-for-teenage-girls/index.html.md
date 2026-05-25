@@ -44,14 +44,14 @@ We’ve all struggled with insecurities in the past. Sometimes we cover it with 
 
 - [soroity girl](https://teen.allwomenstalk.com/stereotypes-about-sorority-girls-that-arent-true/)
 - [questions to ask your teenage girlfriend](https://teen.allwomenstalk.com/questions-every-teenage-girl-has/)
-- [curl halo by curly q reviews](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-will-understand/)
+- [womens newsletter](https://lifestyle.allwomenstalk.com/newsletters-every-woman-needs-to-be-on/)
 - [girls likes and dislikes](https://teen.allwomenstalk.com/things-all-teenage-girls-love/)
-- [supply and demand clothing womens](https://fashion.allwomenstalk.com/common-problems-with-womens-clothing/)
 - [how many types of girlfriend](https://funny.allwomenstalk.com/types-of-girlfriends-you-may-have-in-your-circle/)
+- [supply and demand clothing womens](https://fashion.allwomenstalk.com/common-problems-with-womens-clothing/)
 - [skill for girls](https://lifestyle.allwomenstalk.com/practical-skills-every-woman-should-learn/)
+- [curl halo by curly q reviews](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-will-understand/)
 - [what is charisma](https://lifestyle.allwomenstalk.com/characteristics-of-charismatic-people/)
 - [teenagers scare the living](https://teen.allwomenstalk.com/things-all-teenage-girls-fear-that-you-can-stop-worrying-about/)
-- [womens newsletter](https://lifestyle.allwomenstalk.com/newsletters-every-woman-needs-to-be-on/)
 - [12 Best Ways to Improve Your Self Confidence ...](https://allwomenstalk.com/12-best-ways-to-improve-your-self-confidence/)
 - [7 Ways to Boost Your Sexual Confidence ...](https://allwomenstalk.com/7-ways-to-boost-your-sexual-confidence/)
 

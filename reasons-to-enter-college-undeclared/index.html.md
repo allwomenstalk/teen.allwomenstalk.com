@@ -42,16 +42,16 @@ Choosing a major presents an obstacle for most teens graduating high school. You
 
 ## Related Posts
 
-- [7 Ways to Survive Dorm Life ...](https://teen.allwomenstalk.com/ways-to-survive-dorm-life/)
-- [7 Simple Ways to Protect Your Identity when Living...](https://money.allwomenstalk.com/simple-ways-to-protect-your-identity-when-living-on-campus/)
-- [7 Ways to Live Greener at College ...](https://teen.allwomenstalk.com/ways-to-live-greener-at-college/)
-- [7 Ways for Students to Handle Homesickness ...](https://teen.allwomenstalk.com/ways-for-students-to-handle-homesickness/)
-- [7 Differences between the SAT and ACT ...](https://teen.allwomenstalk.com/differences-between-the-sat-and-act/)
-- [loreal paris le stylo endless pearl](https://lifestyle.allwomenstalk.com/tips-to-succeed-in-earning-an-online-degree/)
 - [easy businesses to start in college](https://teen.allwomenstalk.com/simple-businesses-to-start-during-college/)
 - [7 Effortless Ways to Make Friends in College ...](https://teen.allwomenstalk.com/effortless-ways-to-make-friends-in-college/)
-- [Smart Habits to Get Straight a Grades ...](https://teen.allwomenstalk.com/smart-ways-to-get-a-grades/)
+- [loreal paris le stylo endless pearl](https://lifestyle.allwomenstalk.com/tips-to-succeed-in-earning-an-online-degree/)
 - [Avoid These Bad Study Habits at All Costs ...](https://teen.allwomenstalk.com/bad-study-habits-you-really-have-to-get-rid-of/)
+- [7 Ways to Survive Dorm Life ...](https://teen.allwomenstalk.com/ways-to-survive-dorm-life/)
+- [Smart Habits to Get Straight a Grades ...](https://teen.allwomenstalk.com/smart-ways-to-get-a-grades/)
+- [7 Simple Ways to Protect Your Identity when Living...](https://money.allwomenstalk.com/simple-ways-to-protect-your-identity-when-living-on-campus/)
+- [7 Ways for Students to Handle Homesickness ...](https://teen.allwomenstalk.com/ways-for-students-to-handle-homesickness/)
+- [7 Ways to Live Greener at College ...](https://teen.allwomenstalk.com/ways-to-live-greener-at-college/)
+- [7 Differences between the SAT and ACT ...](https://teen.allwomenstalk.com/differences-between-the-sat-and-act/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 

@@ -42,16 +42,16 @@ Your teenage years are a strange time for many reasons, but that’s no reason w
 
 ## Related Posts
 
-- [ideas for festival activities](https://diy.allwomenstalk.com/diy-carnival-games-for-a-rockin-party/)
-- [connect with nature activities](https://fitness.allwomenstalk.com/activities-that-help-you-become-more-connected-to-nature/)
-- [budget party](https://money.allwomenstalk.com/ways-to-host-a-low-budget-party-with-friends/)
-- [playroom layouts](https://parenting.allwomenstalk.com/epic-playroom-ideas-your-kids-are-going-to-go-crazy-for/)
 - [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
 - [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
-- [fruit tips](https://food.allwomenstalk.com/fabulous-things-to-do-with-fruit/)
+- [ideas for festival activities](https://diy.allwomenstalk.com/diy-carnival-games-for-a-rockin-party/)
 - [soxy scrabble](https://funny.allwomenstalk.com/funny-creative-games-to-play-with-your-boyfriend/)
 - [host a game night](https://lifestyle.allwomenstalk.com/reasons-to-host-a-game-night-with-your-friends/)
+- [fruit tips](https://food.allwomenstalk.com/fabulous-things-to-do-with-fruit/)
+- [budget party](https://money.allwomenstalk.com/ways-to-host-a-low-budget-party-with-friends/)
+- [connect with nature activities](https://fitness.allwomenstalk.com/activities-that-help-you-become-more-connected-to-nature/)
 - [dealers choice movie](https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/)
+- [playroom layouts](https://parenting.allwomenstalk.com/epic-playroom-ideas-your-kids-are-going-to-go-crazy-for/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 - [10 Healthy Ways for Teens to Relax ...](https://health.allwomenstalk.com/healthy-ways-for-teens-to-relax/)
 

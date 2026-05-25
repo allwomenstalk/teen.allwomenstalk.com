@@ -48,16 +48,16 @@ _wikihow.com_
 
 ## Related Posts
 
-- [how to kindly friendzone someone](https://love.allwomenstalk.com/ways-to-friendzone-your-guy-friend-without-being-rude/)
-- [how to avoid leading someone on](https://love.allwomenstalk.com/tips-on-how-to-avoid-leading-him-on/)
+- [how to become charming](https://inspiration.allwomenstalk.com/magical-ways-to-be-charming/)
 - [how to deal with being friendzoned by a girl](https://love.allwomenstalk.com/ways-to-accept-your-friend-zoned-status/)
-- [why am i attracted to a married man](https://love.allwomenstalk.com/tips-on-what-to-do-if-youre-attracted-to-a-married-man/)
-- [decoding body language](https://love.allwomenstalk.com/tips-for-decoding-his-body-language/)
+- [how to avoid leading someone on](https://love.allwomenstalk.com/tips-on-how-to-avoid-leading-him-on/)
+- [creepy facts about halloween](https://love.allwomenstalk.com/ways-to-get-rid-of-a-weird-guy-who-fancies-you/)
 - [being friends first](https://love.allwomenstalk.com/ways-to-transition-from-being-friends-to-dating/)
 - [boyfriend clingy](https://love.allwomenstalk.com/tips-on-how-to-deal-with-a-clingy-boyfriend/)
-- [how to become charming](https://inspiration.allwomenstalk.com/magical-ways-to-be-charming/)
+- [how to kindly friendzone someone](https://love.allwomenstalk.com/ways-to-friendzone-your-guy-friend-without-being-rude/)
+- [why am i attracted to a married man](https://love.allwomenstalk.com/tips-on-what-to-do-if-youre-attracted-to-a-married-man/)
+- [decoding body language](https://love.allwomenstalk.com/tips-for-decoding-his-body-language/)
 - [i love my boyfriends best friend](https://love.allwomenstalk.com/tips-for-when-you-are-crushing-on-your-boyfriends-friend/)
-- [creepy facts about halloween](https://love.allwomenstalk.com/ways-to-get-rid-of-a-weird-guy-who-fancies-you/)
 - [7 Ways to Attract a Guy ...](https://love.allwomenstalk.com/ways-to-attract-a-guy/)
 - [7 Tips on How to Be a Better Girlfriend ...](https://love.allwomenstalk.com/tips-on-how-to-be-a-better-girlfriend/)
 

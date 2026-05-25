@@ -42,16 +42,16 @@ There are literally hundreds of reasons to love being sixteen, but it’s up to 
 
 ## Related Posts
 
-- [famous womens colleges](https://teen.allwomenstalk.com/reasons-to-go-to-a-womens-college/)
-- [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
-- [why do i want to be an ra](https://money.allwomenstalk.com/reasons-being-a-resident-assistant-might-be-the-best-college-student-job/)
-- [take tours](https://travel.allwomenstalk.com/reasons-to-take-a-guided-tour/)
-- [living in the bay](https://travel.allwomenstalk.com/reasons-why-you-should-move-to-the-bay-area/)
-- [i feel guilty spending money on myself](https://money.allwomenstalk.com/good-reasons-you-should-spend-money-on-yourself/)
-- [st patricks in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
 - [get involved on campus](https://lifestyle.allwomenstalk.com/reasons-to-get-involved-on-campus/)
 - [why should i go to a liberal arts college](https://teen.allwomenstalk.com/reasons-to-go-to-a-liberal-arts-college/)
+- [i feel guilty spending money on myself](https://money.allwomenstalk.com/good-reasons-you-should-spend-money-on-yourself/)
+- [living in the bay](https://travel.allwomenstalk.com/reasons-why-you-should-move-to-the-bay-area/)
 - [aldi tallahassee](https://food.allwomenstalk.com/reasons-to-shop-at-aldi-grocery-stores/)
+- [st patricks in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
+- [why do i want to be an ra](https://money.allwomenstalk.com/reasons-being-a-resident-assistant-might-be-the-best-college-student-job/)
+- [take tours](https://travel.allwomenstalk.com/reasons-to-take-a-guided-tour/)
+- [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
+- [famous womens colleges](https://teen.allwomenstalk.com/reasons-to-go-to-a-womens-college/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 - [5 Reasons to Love the Fall ...](https://gardening.allwomenstalk.com/5-reasons-to-love-the-fall/)
 

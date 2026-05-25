@@ -42,15 +42,15 @@ Do you have a favorite aunt? How has she influenced your life?
 
 ## Related Posts
 
-- [social media for women](https://lifestyle.allwomenstalk.com/social-media-tips-all-women-should-take-note-of/)
 - [things women worry about](https://lifestyle.allwomenstalk.com/common-things-women-worry-about/)
-- [why do you like cleaning](https://lifestyle.allwomenstalk.com/reasons-women-love-to-clean-that-explains-a-lot/)
-- [how to find girls](https://love.allwomenstalk.com/places-to-meet-girls-who-like-girls/)
-- [skinny girls song](https://health.allwomenstalk.com/irritating-comments-all-skinny-girls-have-heard/)
-- [how to master small talk](https://inspiration.allwomenstalk.com/ways-to-master-the-art-of-small-talk/)
-- [all girls private education](https://teen.allwomenstalk.com/benefits-of-an-all-girls-school-that-are-worth-considering/)
+- [social media for women](https://lifestyle.allwomenstalk.com/social-media-tips-all-women-should-take-note-of/)
 - [lessons for my daughter](https://parenting.allwomenstalk.com/life-lessons-to-share-with-your-daughter/)
 - [cash money and marvelous](https://money.allwomenstalk.com/marvelous-money-saving-tips-that-every-girl-needs-to-know/)
+- [skinny girls song](https://health.allwomenstalk.com/irritating-comments-all-skinny-girls-have-heard/)
+- [all girls private education](https://teen.allwomenstalk.com/benefits-of-an-all-girls-school-that-are-worth-considering/)
+- [how to find girls](https://love.allwomenstalk.com/places-to-meet-girls-who-like-girls/)
+- [why do you like cleaning](https://lifestyle.allwomenstalk.com/reasons-women-love-to-clean-that-explains-a-lot/)
+- [how to master small talk](https://inspiration.allwomenstalk.com/ways-to-master-the-art-of-small-talk/)
 - [girl code rules about guys](https://lifestyle.allwomenstalk.com/rules-of-the-girl-code-book-every-female-needs-to-know-about/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 - [10 Reasons Why Cats Are a Girls Best Friend ...](https://allwomenstalk.com/10-reasons-why-cats-are-a-girls-best-friend/)

@@ -42,15 +42,15 @@ Today, universities and colleges are extremely impacted, which means it’s your
 
 ## Related Posts
 
+- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
+- [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
+- [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
+- [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
 - [teachers essay writing](https://teen.allwomenstalk.com/ways-to-write-an-essay-your-english-teacher-will-love-reading/)
 - [should i go away for college](https://teen.allwomenstalk.com/reasons-to-move-away-for-college/)
-- [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
 - [feel at home special school](https://teen.allwomenstalk.com/very-useful-tips-on-how-to-feel-at-home-at-a-new-school/)
-- [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
-- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
 - [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
 - [majors for indecisive students](https://teen.allwomenstalk.com/reliable-majors-to-pursue-when-youre-unsure-of-what-you-want-to-do-after-college/)
-- [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
 - [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [8 Ways to Prep for College ...](https://allwomenstalk.com/8-ways-to-prep-for-college/)

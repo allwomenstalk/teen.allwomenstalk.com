@@ -44,16 +44,16 @@ What are other tips to help you confront your anxieties about going to college?
 
 ## Related Posts
 
-- [professor dpz](https://teen.allwomenstalk.com/tips-to-get-to-know-your-college-professor/)
-- [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
-- [how to balance love and studies](https://love.allwomenstalk.com/heres-how-to-balance-dating-and-studying-when-in-college/)
-- [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
-- [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
-- [things to do the day before school](https://teen.allwomenstalk.com/ways-to-mentally-prepare-for-the-start-of-school/)
-- [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
-- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
 - [eurail student discounts](https://teen.allwomenstalk.com/best-discounts-and-freebies-you-get-with-your-student-id/)
+- [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
+- [how to balance love and studies](https://love.allwomenstalk.com/heres-how-to-balance-dating-and-studying-when-in-college/)
+- [professor dpz](https://teen.allwomenstalk.com/tips-to-get-to-know-your-college-professor/)
+- [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
+- [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
+- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
+- [things to do the day before school](https://teen.allwomenstalk.com/ways-to-mentally-prepare-for-the-start-of-school/)
+- [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
 - [7 Tips on Finding Motivation to Go to College ...](https://allwomenstalk.com/7-tips-on-finding-motivation-to-go-to-college/)
 - [9 Simple Ways to Find Quiet Time at College ...](https://teen.allwomenstalk.com/simple-ways-to-find-quiet-time-at-college/)
 

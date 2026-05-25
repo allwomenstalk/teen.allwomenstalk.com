@@ -42,15 +42,15 @@ Often, our grades are less impressive than they could be if we did a better job 
 
 ## Related Posts
 
-- [How to Keep Your Cool when Things Are Not Going as...](https://inspiration.allwomenstalk.com/how-to-keep-your-cool-when-things-are-not-going-as-planned/)
-- [Challenge Yourself to Avoid These Negative Thought...](https://inspiration.allwomenstalk.com/challenge-yourself-to-avoid-these-negative-thoughts-for-hours/)
-- [How to Control Your Emotions during That Time of t...](https://health.allwomenstalk.com/how-to-control-your-emotions-during-that-time-of-the-month/)
-- [How to Calm Your Nerves in Social Situations ...](https://lifestyle.allwomenstalk.com/how-to-calm-your-nerves-in-social-situations/)
-- [How to Calm down and De-stress after a Horrible Da...](https://health.allwomenstalk.com/how-to-calm-down-and-de-stress-after-a-horrible-day/)
-- [What to do when Youre Burnt out from a Long Day of...](https://health.allwomenstalk.com/what-to-do-when-youre-burnt-out-from-a-long-day-of-classes/)
 - [Cant Concentrate These Will Help ...](https://health.allwomenstalk.com/cant-concentrate-better-try-these-natural-ways-to-boost-your-focus/)
+- [What to do when Youre Burnt out from a Long Day of...](https://health.allwomenstalk.com/what-to-do-when-youre-burnt-out-from-a-long-day-of-classes/)
+- [Challenge Yourself to Avoid These Negative Thought...](https://inspiration.allwomenstalk.com/challenge-yourself-to-avoid-these-negative-thoughts-for-hours/)
+- [How to Calm down and De-stress after a Horrible Da...](https://health.allwomenstalk.com/how-to-calm-down-and-de-stress-after-a-horrible-day/)
+- [How to Control Your Emotions during That Time of t...](https://health.allwomenstalk.com/how-to-control-your-emotions-during-that-time-of-the-month/)
+- [How to Keep Your Cool when Things Are Not Going as...](https://inspiration.allwomenstalk.com/how-to-keep-your-cool-when-things-are-not-going-as-planned/)
 - [Cheer Yourself up with These 7 Rut Ruiners ...](https://inspiration.allwomenstalk.com/cheer-yourself-up-with-these-rut-ruiners/)
 - [What to do when Youre Sad but Dont Know Why ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-sad-but-dont-know-why/)
+- [How to Calm Your Nerves in Social Situations ...](https://lifestyle.allwomenstalk.com/how-to-calm-your-nerves-in-social-situations/)
 - [agoraphobia tips](https://health.allwomenstalk.com/tips-for-coping-with-agoraphobia/)
 - [Smart Habits to Get Straight a Grades ...](https://teen.allwomenstalk.com/smart-ways-to-get-a-grades/)
 - [Try Some Speedy Tips for Quick Memorization ...](https://inspiration.allwomenstalk.com/tips-on-how-to-memorize-things-quickly/)

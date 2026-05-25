@@ -56,16 +56,16 @@ Ultimately, this year just have fun, be yourself, and don't stop reaching for th
 
 ## Related Posts
 
-- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
-- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
-- [important things to remember](https://lifestyle.allwomenstalk.com/graduation-comes-with-expectations-what-to-remember-as-your-accept-your-diploma/)
+- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
+- [outfit for graduation party](https://fashion.allwomenstalk.com/from-your-graduation-party-to-your-graduation-outfit-tips-all-seniors-should-see/)
+- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
 - [perfect date gif](https://funny.allwomenstalk.com/gifs-that-describe-what-dating-is-like-in-college/)
+- [important things to remember](https://lifestyle.allwomenstalk.com/graduation-comes-with-expectations-what-to-remember-as-your-accept-your-diploma/)
+- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
+- [how to decide between 2 colleges](https://teen.allwomenstalk.com/decisions-decisions-how-to-choose-between-your-top-two-colleges/)
+- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
 - [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
 - [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
-- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
-- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
-- [outfit for graduation party](https://fashion.allwomenstalk.com/from-your-graduation-party-to-your-graduation-outfit-tips-all-seniors-should-see/)
-- [how to decide between 2 colleges](https://teen.allwomenstalk.com/decisions-decisions-how-to-choose-between-your-top-two-colleges/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 - [9 Tips for an Extraordinary School Year ...](https://allwomenstalk.com/9-tips-for-an-extraordinary-school-year/)
 

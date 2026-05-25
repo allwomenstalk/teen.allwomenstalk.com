@@ -42,16 +42,16 @@ These are some steps to take if you’re feeling left out by your friends. Have 
 
 ## Related Posts
 
-- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
-- [how do i toughen up](https://inspiration.allwomenstalk.com/too-sensitive-ways-to-toughen-up/)
-- [non-confrontational meaning](https://love.allwomenstalk.com/tips-for-talking-to-your-non-confrontational-partner/)
 - [how to get over the awkward stage in a relationshi...](https://love.allwomenstalk.com/ways-to-avoid-the-awkward-tension-after-an-argument/)
+- [its not you its me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
+- [non-confrontational meaning](https://love.allwomenstalk.com/tips-for-talking-to-your-non-confrontational-partner/)
 - [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
 - [peace offering ideas](https://love.allwomenstalk.com/how-to-apologize-without-actually-saying-youre-sorry/)
-- [its not you its me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
+- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
 - [how to stay away from drama](https://lifestyle.allwomenstalk.com/ways-to-avoid-drama-on-your-social-media-accounts/)
-- [friends sabotaging relationships](https://lifestyle.allwomenstalk.com/ways-youre-sabotaging-your-friendships/)
+- [how do i toughen up](https://inspiration.allwomenstalk.com/too-sensitive-ways-to-toughen-up/)
 - [taking advantage meaning](https://love.allwomenstalk.com/what-should-you-do-if-your-partner-takes-advantage-of-you/)
+- [friends sabotaging relationships](https://lifestyle.allwomenstalk.com/ways-youre-sabotaging-your-friendships/)
 - [The Losers Friend ...](https://allwomenstalk.com/the-losers-friend/)
 - [7 Reasons to Not Forget Your Friends when in a Rel...](https://love.allwomenstalk.com/reasons-to-not-forget-your-own-friends-when-in-a-relationship/)
 

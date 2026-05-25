@@ -42,16 +42,16 @@ I hope this helps in some small way. If you’re ever feeling a bit hopeless, th
 
 ## Related Posts
 
-- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
 - [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
+- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
 - [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
-- [mens accgft marshalls](https://fashion.allwomenstalk.com/worst-things-to-wear-in-the-workplace/)
-- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
-- [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
-- [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
-- [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
 - [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
+- [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
 - [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
+- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
+- [mens accgft marshalls](https://fashion.allwomenstalk.com/worst-things-to-wear-in-the-workplace/)
+- [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
+- [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)
 - [7 Things I Miss about College ...](https://allwomenstalk.com/7-things-i-miss-about-college/)
 

@@ -42,16 +42,16 @@ These are my favorite ways to deal with stress during college. I know many peopl
 
 ## Related Posts
 
-- [mcat success tips](https://teen.allwomenstalk.com/tips-for-studying-for-the-mcat/)
-- [7 Organisation Tricks Thatll Make Studying Easy .....](https://teen.allwomenstalk.com/organisation-tricks-thatll-make-studying-easy/)
-- [appreciate your time](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
 - [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
-- [Are You Prepared to Get Your Masters Degree ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
-- [7 Things You Wish You Knew about Money in College ...](https://money.allwomenstalk.com/things-you-wish-you-knew-about-money-in-college/)
-- [Thought-provoking Points to Consider if Youre Thin...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
 - [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
+- [Thought-provoking Points to Consider if Youre Thin...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
+- [Are You Prepared to Get Your Masters Degree ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
 - [7 Resume Boosting Student Vacations ...](https://travel.allwomenstalk.com/resume-boosting-student-vacations/)
 - [Keep Calm and Grade on: Dealing with Exam Nerves s...](https://teen.allwomenstalk.com/tips-for-dealing-with-exam-nerves-so-you-can-succeed/)
+- [7 Organisation Tricks Thatll Make Studying Easy .....](https://teen.allwomenstalk.com/organisation-tricks-thatll-make-studying-easy/)
+- [mcat success tips](https://teen.allwomenstalk.com/tips-for-studying-for-the-mcat/)
+- [appreciate your time](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
+- [7 Things You Wish You Knew about Money in College ...](https://money.allwomenstalk.com/things-you-wish-you-knew-about-money-in-college/)
 - [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 - [7 Foods to Combat Stress ...](https://allwomenstalk.com/7-foods-to-combat-stress/)
 

@@ -56,16 +56,16 @@ What were your favorite books to read as a teenager? What would you recommend to
 
 ## Related Posts
 
-- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
-- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
-- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
-- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
-- [anthony trollope novel](https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/)
 - [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
-- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
+- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
+- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
 - [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
+- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
 - [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
+- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
+- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
+- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
+- [anthony trollope novel](https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [8 Things Teenager Girls Enjoy Doing ...](https://parenting.allwomenstalk.com/8-things-teenager-girls-enjoy-doing/)
 

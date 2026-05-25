@@ -44,16 +44,16 @@ Overall, high school is what you make of it! But high school social life definit
 
 ## Related Posts
 
-- [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
+- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
+- [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
+- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
+- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
+- [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
 - [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
 - [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
-- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
-- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
-- [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
 - [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
-- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
-- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
+- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [8 Things Ive Learned from Gossip Girl ...](https://movies.allwomenstalk.com/things-ive-learned-from-gossip-girl/)
 

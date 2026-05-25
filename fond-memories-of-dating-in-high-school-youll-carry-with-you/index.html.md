@@ -42,16 +42,16 @@ What are some other memorable moments you can think of from dating in high schoo
 
 ## Related Posts
 
-- [how to start a serious relationship](https://love.allwomenstalk.com/things-you-should-know-before-starting-a-serious-relationship/)
-- [best things about marriage](https://love.allwomenstalk.com/best-things-about-being-married/)
-- [what are the needs in a relationship](https://love.allwomenstalk.com/things-every-good-relationship-needs-besides-love/)
-- [starting a relationship while deployed](https://love.allwomenstalk.com/relationship-survival-tips-during-a-deployment/)
 - [starting a new relationship](https://love.allwomenstalk.com/things-to-keep-in-mind-at-the-start-of-a-new-relationship/)
-- [things happen when they are supposed to](https://love.allwomenstalk.com/things-that-are-supposed-to-happen-on-a-date/)
-- [how to avoid losing yourself in a relationship](https://love.allwomenstalk.com/ways-to-not-lose-yourself-in-a-relationship-2/)
-- [how can you find love](https://love.allwomenstalk.com/ways-to-find-love/)
-- [how to make a relationship work when youre both bu...](https://love.allwomenstalk.com/tips-for-keeping-your-relationship-strong-when-youre-both-crazy-busy/)
 - [i love my girlfriend but something feels off](https://love.allwomenstalk.com/healthy-changes-to-make-in-your-relationship-when-it-feels-off/)
+- [starting a relationship while deployed](https://love.allwomenstalk.com/relationship-survival-tips-during-a-deployment/)
+- [things happen when they are supposed to](https://love.allwomenstalk.com/things-that-are-supposed-to-happen-on-a-date/)
+- [how can you find love](https://love.allwomenstalk.com/ways-to-find-love/)
+- [best things about marriage](https://love.allwomenstalk.com/best-things-about-being-married/)
+- [how to avoid losing yourself in a relationship](https://love.allwomenstalk.com/ways-to-not-lose-yourself-in-a-relationship-2/)
+- [how to make a relationship work when youre both bu...](https://love.allwomenstalk.com/tips-for-keeping-your-relationship-strong-when-youre-both-crazy-busy/)
+- [what are the needs in a relationship](https://love.allwomenstalk.com/things-every-good-relationship-needs-besides-love/)
+- [how to start a serious relationship](https://love.allwomenstalk.com/things-you-should-know-before-starting-a-serious-relationship/)
 - [7 Great Books about Dating ...](https://love.allwomenstalk.com/great-books-about-dating/)
 - [Essential Dating Lessons from Sex and the City ...](https://allwomenstalk.com/essential-dating-lessons-from-sex-and-the-city/)
 

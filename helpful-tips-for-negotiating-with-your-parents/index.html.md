@@ -42,16 +42,16 @@ If you’re at a point where you need to negotiate some basic rules with your pa
 
 ## Related Posts
 
-- [how to discipline a child with oppositional defian...](https://parenting.allwomenstalk.com/ways-to-manage-oppositional-defiant-disorder-in-children/)
-- [childhood myths told by parents](https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/)
 - [signs toddlers are ready for potty training](https://parenting.allwomenstalk.com/easy-to-recognize-signs-that-your-toddler-is-ready-to-potty-train/)
-- [are parents responsible for their childrens behavi...](https://parenting.allwomenstalk.com/reasons-to-stop-blaming-parents-for-a-childs-misbehavior/)
+- [how to discipline a child with oppositional defian...](https://parenting.allwomenstalk.com/ways-to-manage-oppositional-defiant-disorder-in-children/)
+- [kids playing in the playground](https://fitness.allwomenstalk.com/exercises-you-can-do-at-the-playground-while-your-kids-play/)
+- [hows your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
 - [7 ways to build good relationship with my family](https://teen.allwomenstalk.com/ways-to-bond-with-your-parents/)
+- [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
+- [childhood myths told by parents](https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/)
 - [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
 - [computers games for toddlers](https://parenting.allwomenstalk.com/games-children-used-before-technology-came-along/)
-- [hows your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
-- [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
-- [kids playing in the playground](https://fitness.allwomenstalk.com/exercises-you-can-do-at-the-playground-while-your-kids-play/)
+- [are parents responsible for their childrens behavi...](https://parenting.allwomenstalk.com/reasons-to-stop-blaming-parents-for-a-childs-misbehavior/)
 - [8 Things You Need to Know about Your Teen ...](https://parenting.allwomenstalk.com/things-you-need-to-know-about-your-teen/)
 - [7 Top Money Tips for Teens ...](https://lifestyle.allwomenstalk.com/top-money-tips-for-teens/)
 

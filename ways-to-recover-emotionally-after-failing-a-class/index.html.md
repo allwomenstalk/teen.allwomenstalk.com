@@ -42,16 +42,16 @@ You'll go through many failures in your life. Don't let a single class send your
 
 ## Related Posts
 
-- [how to not message your ex](https://love.allwomenstalk.com/tips-to-avoid-texting-your-ex/)
 - [what to do when you think your boyfriend is cheati...](https://love.allwomenstalk.com/things-to-do-if-you-think-your-boyfriend-is-cheating/)
-- [how to not let your life revolve around your boyfr...](https://love.allwomenstalk.com/tips-on-how-to-not-let-your-life-revolve-around-him/)
-- [why heartbreak is good for you](https://love.allwomenstalk.com/surprising-benefits-of-a-broken-heart/)
 - [how can i trust my boyfriend again](https://love.allwomenstalk.com/ways-to-regain-your-boyfriends-trust/)
+- [why heartbreak is good for you](https://love.allwomenstalk.com/surprising-benefits-of-a-broken-heart/)
+- [when your ex dates your friend](https://love.allwomenstalk.com/ways-to-deal-with-your-friend-dating-your-ex/)
+- [how to not message your ex](https://love.allwomenstalk.com/tips-to-avoid-texting-your-ex/)
 - [why do i feel sad when my friend is sad](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-sad/)
 - [i quit relationship quotes](https://love.allwomenstalk.com/reassuring-quotes-to-help-you-finally-end-a-bad-relationship/)
 - [living with your ex](https://love.allwomenstalk.com/tips-on-how-to-handle-living-with-your-ex/)
-- [when your ex dates your friend](https://love.allwomenstalk.com/ways-to-deal-with-your-friend-dating-your-ex/)
 - [im so grateful for my ex](https://love.allwomenstalk.com/surprising-reasons-to-be-grateful-for-your-ex/)
+- [how to not let your life revolve around your boyfr...](https://love.allwomenstalk.com/tips-on-how-to-not-let-your-life-revolve-around-him/)
 - [7 Ways to Beat the First Day of School Blues ...](https://parenting.allwomenstalk.com/7-ways-to-beat-the-first-day-of-school-blues/)
 - [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 

@@ -42,16 +42,16 @@ Keep your head up, buttercup! College is a great time to learn new things, make 
 
 ## Related Posts
 
-- [Win an Interview with Us with Your Best BacktoScho...](https://lifestyle.allwomenstalk.com/win-an-interview-with-your-best-backtoschool-tip/)
-- [7 Things You Dont Realize Youll Miss Once You Grad...](https://lifestyle.allwomenstalk.com/things-youll-miss-about-college-once-its-all-over/)
-- [7 Issues  You Should Always Discuss with Your Pare...](https://teen.allwomenstalk.com/issues-to-discuss-with-your-parents-before-leaving-for-college/)
-- [What You Need to Consider  Your First Semester in ...](https://teen.allwomenstalk.com/most-important-things-to-keep-in-mind-your-first-semester-in-college/)
-- [high school regrets](https://teen.allwomenstalk.com/how-to-survive-high-school-without-regrets/)
+- [7 Super Savvy Ways to Make Money in College ...](https://money.allwomenstalk.com/make-money-in-college-the-easy-way/)
 - [Life Changing Finance Tips All Freshmen Must Know ...](https://money.allwomenstalk.com/the-best-finance-tips-for-freshmen/)
 - [Here Are the Best Jobs for College Students to Loo...](https://money.allwomenstalk.com/here-are-the-best-jobs-for-college-students/)
-- [7 Super Savvy Ways to Make Money in College ...](https://money.allwomenstalk.com/make-money-in-college-the-easy-way/)
+- [high school regrets](https://teen.allwomenstalk.com/how-to-survive-high-school-without-regrets/)
+- [7 Things You Dont Realize Youll Miss Once You Grad...](https://lifestyle.allwomenstalk.com/things-youll-miss-about-college-once-its-all-over/)
+- [7 Issues  You Should Always Discuss with Your Pare...](https://teen.allwomenstalk.com/issues-to-discuss-with-your-parents-before-leaving-for-college/)
 - [The Essential 7 Strategies for Those Who Want to B...](https://teen.allwomenstalk.com/use-these-strategies-to-be-a-more-successful-student/)
 - [How to Survive Your First Week of College ...](https://teen.allwomenstalk.com/how-to-survive-your-first-week-of-college/)
+- [What You Need to Consider  Your First Semester in ...](https://teen.allwomenstalk.com/most-important-things-to-keep-in-mind-your-first-semester-in-college/)
+- [Win an Interview with Us with Your Best BacktoScho...](https://lifestyle.allwomenstalk.com/win-an-interview-with-your-best-backtoschool-tip/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 

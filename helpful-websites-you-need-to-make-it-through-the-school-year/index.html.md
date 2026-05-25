@@ -42,16 +42,16 @@ School can be stressful, which is why it's nice to have some helpful websites bo
 
 ## Related Posts
 
-- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
-- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
-- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
-- [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
-- [easy things to go to school for](https://lifestyle.allwomenstalk.com/alternative-things-to-do-instead-of-going-to-college/)
-- [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
-- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
 - [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
+- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
+- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
+- [easy things to go to school for](https://lifestyle.allwomenstalk.com/alternative-things-to-do-instead-of-going-to-college/)
+- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
 - [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
+- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
+- [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
 - [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
+- [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
 - [7 Tips Needed for Those Going Back to School ...](https://allwomenstalk.com/7-tips-needed-for-those-going-back-to-school/)
 - [7 Ways to Prepare for Back-to-School ...](https://allwomenstalk.com/7-ways-to-prepare-for-back-to-school/)
 

@@ -42,16 +42,16 @@ You don't want to spend the entire semester sitting in a corner alone. That's wh
 
 ## Related Posts
 
-- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
 - [single independent woman](https://inspiration.allwomenstalk.com/independent-women-will-love-these-self-date-ideas/)
-- [controllinh](https://lifestyle.allwomenstalk.com/things-girls-who-swear-hate-to-hear/)
-- [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
-- [boyfriend extra](https://love.allwomenstalk.com/the-lazy-girls-guide-to-getting-a-boyfriend/)
-- [gym girl wedgie](https://fitness.allwomenstalk.com/awkward-gym-moments-every-girl-has-endured/)
 - [girls guide essay](https://teen.allwomenstalk.com/how-to-pick-an-essay-topic-thatll-get-you-an-a/)
 - [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
-- [how to find your calling](https://inspiration.allwomenstalk.com/how-to-find-your-calling-in-life/)
+- [controllinh](https://lifestyle.allwomenstalk.com/things-girls-who-swear-hate-to-hear/)
+- [boyfriend extra](https://love.allwomenstalk.com/the-lazy-girls-guide-to-getting-a-boyfriend/)
+- [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
+- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
 - [basic girls fall](https://lifestyle.allwomenstalk.com/fall-things-all-of-us-basic-girls-enjoy/)
+- [gym girl wedgie](https://fitness.allwomenstalk.com/awkward-gym-moments-every-girl-has-endured/)
+- [how to find your calling](https://inspiration.allwomenstalk.com/how-to-find-your-calling-in-life/)
 - [21 Ways to Start a Conversation with a Guy You lik...](https://allwomenstalk.com/15-ways-to-start-a-conversation-with-a-guy-you-like/)
 - [7 Tips for Men on Sparking up a Conversation ...](https://allwomenstalk.com/7-tips-for-men-on-sparking-up-a-conversation/)
 

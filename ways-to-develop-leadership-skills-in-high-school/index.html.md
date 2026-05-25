@@ -42,16 +42,16 @@ Leadership is one of the most important skills you ought to learn in high school
 
 ## Related Posts
 
-- [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
-- [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
-- [a heavy workload](https://teen.allwomenstalk.com/quick-tips-for-managing-a-heavy-workload-in-college/)
 - [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
-- [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
-- [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
-- [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
-- [best colleges for food allergies](https://teen.allwomenstalk.com/tips-to-deal-with-food-allergies-at-college/)
 - [infographic topics for college students](https://teen.allwomenstalk.com/incredibly-useful-infographic-for-students/)
+- [a heavy workload](https://teen.allwomenstalk.com/quick-tips-for-managing-a-heavy-workload-in-college/)
+- [best colleges for food allergies](https://teen.allwomenstalk.com/tips-to-deal-with-food-allergies-at-college/)
 - [how to get to ivy league](https://teen.allwomenstalk.com/tips-on-how-to-get-into-an-ivy-league-school/)
+- [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
+- [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
+- [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
+- [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
+- [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 - [8 Tips on Making Friends in High School ...](https://allwomenstalk.com/8-tips-on-making-friends-in-high-school/)
 

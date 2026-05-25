@@ -42,15 +42,15 @@ It is really important try to work things out with your best friend if you have 
 
 ## Related Posts
 
-- [how to deal with irrational people](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-communicate-with-an-irrational-person/)
-- [how to deal with a sick parent](https://health.allwomenstalk.com/tips-on-how-to-cope-with-a-sick-family-member/)
-- [lie detector](https://lifestyle.allwomenstalk.com/tips-on-how-to-make-someone-admit-they-are-lying/)
-- [my mom stopped talking to me](https://teen.allwomenstalk.com/ways-to-deal-with-your-parents-fighting-constantly/)
-- [its very difficult to talk](https://inspiration.allwomenstalk.com/tips-for-dealing-with-someone-who-is-difficult-to-talk-to/)
 - [mean girl tactics](https://teen.allwomenstalk.com/ways-to-cope-with-a-mean-girl/)
+- [lie detector](https://lifestyle.allwomenstalk.com/tips-on-how-to-make-someone-admit-they-are-lying/)
+- [how to stop being type a](https://lifestyle.allwomenstalk.com/ways-to-break-the-type-a-personality-obsession/)
+- [how to deal with irrational people](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-communicate-with-an-irrational-person/)
+- [my mom stopped talking to me](https://teen.allwomenstalk.com/ways-to-deal-with-your-parents-fighting-constantly/)
 - [side by side or miles apart best friends](https://inspiration.allwomenstalk.com/ways-to-stay-best-friends-when-you-are-miles-apart/)
 - [mend our friendship](https://lifestyle.allwomenstalk.com/ways-to-mend-a-broken-friendship/)
-- [how to stop being type a](https://lifestyle.allwomenstalk.com/ways-to-break-the-type-a-personality-obsession/)
+- [how to deal with a sick parent](https://health.allwomenstalk.com/tips-on-how-to-cope-with-a-sick-family-member/)
+- [its very difficult to talk](https://inspiration.allwomenstalk.com/tips-for-dealing-with-someone-who-is-difficult-to-talk-to/)
 - [confrontive definition](https://lifestyle.allwomenstalk.com/useful-ways-to-confront-someone-giving-you-the-silent-treatment/)
 - [How to Be a Good Friend: 7 Ways to Avoid Friendshi...](https://lifestyle.allwomenstalk.com/how-to-be-a-good-friend-7-ways-to-avoid-friendship-failures/)
 - [7 Ways to End a Fight ...](https://love.allwomenstalk.com/ways-to-end-a-fight/)

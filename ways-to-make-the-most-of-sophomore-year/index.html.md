@@ -42,16 +42,16 @@ Sophomore year is an important year and should be taken seriously. But at the sa
 
 ## Related Posts
 
-- [easy things to go to school for](https://lifestyle.allwomenstalk.com/alternative-things-to-do-instead-of-going-to-college/)
-- [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
-- [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
-- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
-- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
-- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
-- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
-- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
-- [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
 - [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
+- [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
+- [easy things to go to school for](https://lifestyle.allwomenstalk.com/alternative-things-to-do-instead-of-going-to-college/)
+- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
+- [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
+- [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
+- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
+- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
+- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
+- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [7 Ways to Get Better Grades ...](https://allwomenstalk.com/7-ways-to-get-better-grades/)
 

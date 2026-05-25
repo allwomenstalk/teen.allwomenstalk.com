@@ -42,16 +42,16 @@ Why not make a resolution to end the summer smarter than you started it? Knowled
 
 ## Related Posts
 
-- [how to use a food bank](https://food.allwomenstalk.com/easy-tips-for-making-the-most-of-your-summer-produce/)
 - [beautiful sandcastles](https://lifestyle.allwomenstalk.com/stunning-sandcastles-to-say-farewell-to-summer/)
-- [diy shell decor](https://diy.allwomenstalk.com/shell-crafts-to-do-when-summers-over/)
 - [san francisco free things to do](https://travel.allwomenstalk.com/best-free-things-to-do-in-san-francisco-in-the-summer/)
-- [secluded beaches usa](https://travel.allwomenstalk.com/find-sweet-summer-seclusion-at-these-us-beaches/)
-- [best time to tan in florida](https://travel.allwomenstalk.com/best-islands-in-florida-for-getting-a-tan-this-summer/)
-- [bath and body works land of sweets](https://baking.allwomenstalk.com/sweet-cherry-recipes-to-try-this-summer/)
 - [well your world corn chowder](https://food.allwomenstalk.com/end-of-summer-corn-recipes-that-taste-garden-fresh/)
-- [free things to do on staten island](https://travel.allwomenstalk.com/make-your-holiday-dollar-go-further-the-best-free-things-to-do-in-summer-in-new-york/)
+- [how to use a food bank](https://food.allwomenstalk.com/easy-tips-for-making-the-most-of-your-summer-produce/)
+- [best time to tan in florida](https://travel.allwomenstalk.com/best-islands-in-florida-for-getting-a-tan-this-summer/)
+- [secluded beaches usa](https://travel.allwomenstalk.com/find-sweet-summer-seclusion-at-these-us-beaches/)
 - [watermelon shaved ice](https://food.allwomenstalk.com/refreshing-ways-to-eat-watermelon-this-summer/)
+- [diy shell decor](https://diy.allwomenstalk.com/shell-crafts-to-do-when-summers-over/)
+- [bath and body works land of sweets](https://baking.allwomenstalk.com/sweet-cherry-recipes-to-try-this-summer/)
+- [free things to do on staten island](https://travel.allwomenstalk.com/make-your-holiday-dollar-go-further-the-best-free-things-to-do-in-summer-in-new-york/)
 - [7 Foods to Make You Smarter ...](https://allwomenstalk.com/7-foods-to-make-you-smarter/)
 - [7 Ways to a Better Summer by Quitting Smoking This...](https://health.allwomenstalk.com/ways-to-a-better-summer-by-quitting-smoking-this-spring/)
 

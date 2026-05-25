@@ -57,15 +57,15 @@ While it isn’t exactly a breakup, the end of a friendship can still be extreme
 ## Related Posts
 
 - [how to deal with self absorbed people](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-self-absorbed-person/)
-- [quotes about friends hurting you](https://inspiration.allwomenstalk.com/reasons-to-be-kind-to-those-who-have-hurt-you/)
-- [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
-- [why am i so mean to my boyfriend](https://love.allwomenstalk.com/helpful-tips-on-how-to-deal-with-a-mean-boyfriend/)
-- [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
-- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
-- [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
-- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
-- [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
 - [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
+- [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
+- [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
+- [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
+- [why am i so mean to my boyfriend](https://love.allwomenstalk.com/helpful-tips-on-how-to-deal-with-a-mean-boyfriend/)
+- [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
+- [quotes about friends hurting you](https://inspiration.allwomenstalk.com/reasons-to-be-kind-to-those-who-have-hurt-you/)
+- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
+- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
 - [7 Ways to Leave a Bad Relationship ...](https://allwomenstalk.com/7-ways-to-leave-a-bad-relationship/)
 - [7 Ways to Ditch a Frenemy ...](https://allwomenstalk.com/ways-to-ditch-a-frenemy/)
 

@@ -42,16 +42,16 @@ Friendships take a lot of mutual work and there are certain things you can do or
 
 ## Related Posts
 
-- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
 - [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
-- [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
 - [what are you glad your parents dont know about you...](https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/)
+- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
+- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
+- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
+- [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
 - [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
 - [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
+- [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
 - [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
-- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
-- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
-- [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
 - [7 Things You Shouldnt do on Facebook ...](https://allwomenstalk.com/7-things-you-shouldnt-do-on-facebook/)
 - [7 Signs You Shouldnt Befriend Your Ex ...](https://allwomenstalk.com/7-signs-you-shouldnt-befriend-your-ex/)
 

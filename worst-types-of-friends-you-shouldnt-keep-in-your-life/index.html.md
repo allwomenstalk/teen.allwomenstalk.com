@@ -42,16 +42,16 @@ Well, there you have it! These are seven types of "friends" that you shouldn't f
 
 ## Related Posts
 
-- [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
+- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
 - [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
 - [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
-- [the real reason your teenager is ignoring you the ...](https://parenting.allwomenstalk.com/things-your-teen-will-do-that-you-should-probably-ignore/)
-- [how to deal with a bully at school](https://teen.allwomenstalk.com/types-of-people-to-avoid-in-high-school/)
-- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
-- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
-- [personality turn offs](https://love.allwomenstalk.com/traits-that-are-turn-offs-for-any-gender/)
-- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
 - [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
+- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
+- [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
+- [the real reason your teenager is ignoring you the ...](https://parenting.allwomenstalk.com/things-your-teen-will-do-that-you-should-probably-ignore/)
+- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
+- [how to deal with a bully at school](https://teen.allwomenstalk.com/types-of-people-to-avoid-in-high-school/)
+- [personality turn offs](https://love.allwomenstalk.com/traits-that-are-turn-offs-for-any-gender/)
 - [7 Signs You Shouldnt Befriend Your Ex ...](https://allwomenstalk.com/7-signs-you-shouldnt-befriend-your-ex/)
 - [Friendship 101: 7 Things to Avoid ...](https://allwomenstalk.com/friendship-101-7-things-to-avoid/)
 

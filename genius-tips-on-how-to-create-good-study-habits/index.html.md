@@ -42,16 +42,16 @@ Do you know any other useful tips on how to create good study habits
 
 ## Related Posts
 
-- [sunday habits](https://lifestyle.allwomenstalk.com/sunday-habits-to-prepare-for-the-week-ahead/)
-- [how to shine in life](https://inspiration.allwomenstalk.com/tips-to-make-your-life-shine-with-happiness/)
-- [how do i feel alive](https://inspiration.allwomenstalk.com/inspiring-ways-to-feel-alive-and-not-just-exist/)
-- [ikigai 10 regeln](https://health.allwomenstalk.com/the-rules-of-ikigai-to-lead-a-long-and-happy-life/)
 - [make the most of what you have](https://inspiration.allwomenstalk.com/how-to-be-happy-and-make-the-most-of-life/)
+- [bad days are temporary](https://inspiration.allwomenstalk.com/positive-things-to-say-to-yourself-on-your-bad-days/)
+- [worlds healthiest person](https://health.allwomenstalk.com/helpful-tips-on-how-to-be-the-healthiest-person-in-the-world/)
 - [cultivating self compassion](https://inspiration.allwomenstalk.com/how-to-cultivate-self-compassion-for-a-happier-and-more-loved-you/)
 - [How to Stop Being at War with Yourself ...](https://inspiration.allwomenstalk.com/how-to-stop-being-at-war-with-yourself/)
-- [worlds healthiest person](https://health.allwomenstalk.com/helpful-tips-on-how-to-be-the-healthiest-person-in-the-world/)
-- [bad days are temporary](https://inspiration.allwomenstalk.com/positive-things-to-say-to-yourself-on-your-bad-days/)
+- [how to shine in life](https://inspiration.allwomenstalk.com/tips-to-make-your-life-shine-with-happiness/)
 - [how to make my life more exciting](https://inspiration.allwomenstalk.com/easy-ways-to-make-your-life-more-exciting/)
+- [ikigai 10 regeln](https://health.allwomenstalk.com/the-rules-of-ikigai-to-lead-a-long-and-happy-life/)
+- [how do i feel alive](https://inspiration.allwomenstalk.com/inspiring-ways-to-feel-alive-and-not-just-exist/)
+- [sunday habits](https://lifestyle.allwomenstalk.com/sunday-habits-to-prepare-for-the-week-ahead/)
 - [7 Ways to Encourage Good Study Habits ...](https://allwomenstalk.com/7-ways-to-encourage-good-study-habits/)
 - [10 Study Habits to Start Now ...](https://allwomenstalk.com/10-study-habits-to-start-now/)
 

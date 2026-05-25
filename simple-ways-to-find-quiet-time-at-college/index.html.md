@@ -50,16 +50,16 @@ Quiet time at college isn't impossible. You just have to know where to look for 
 
 ## Related Posts
 
-- [Everything College Students Should Know about Stay...](https://teen.allwomenstalk.com/safety-tips-for-college-students/)
 - [7 Tips on How to Build a Resume when in High Schoo...](https://teen.allwomenstalk.com/tips-on-how-to-build-a-resume-when-in-high-school/)
-- [Everything You Need to Know about Writing a Schola...](https://teen.allwomenstalk.com/tips-for-writing-a-scholarship-essay/)
-- [Get Some Help with Narrowing down Your College Lis...](https://teen.allwomenstalk.com/helpful-tips-for-narrowing-down-your-college-list/)
-- [7 Tips on How to Get Financial Aid in College ...](https://money.allwomenstalk.com/tips-on-how-to-get-financial-aid-in-college/)
-- [Read This if You Need Help with the Common Applica...](https://teen.allwomenstalk.com/tips-for-understanding-the-common-application/)
-- [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
-- [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
 - [Sweet Dreams and Good Grades: How to Sleep Better ...](https://teen.allwomenstalk.com/ways-to-sleep-better-in-college/)
+- [Get Some Help with Narrowing down Your College Lis...](https://teen.allwomenstalk.com/helpful-tips-for-narrowing-down-your-college-list/)
+- [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
 - [Beware of These Difficulties when Youre Studying f...](https://money.allwomenstalk.com/difficulties-you-can-encounter-when-studying-for-an-online-degree/)
+- [Everything You Need to Know about Writing a Schola...](https://teen.allwomenstalk.com/tips-for-writing-a-scholarship-essay/)
+- [Read This if You Need Help with the Common Applica...](https://teen.allwomenstalk.com/tips-for-understanding-the-common-application/)
+- [7 Tips on How to Get Financial Aid in College ...](https://money.allwomenstalk.com/tips-on-how-to-get-financial-aid-in-college/)
+- [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
+- [Everything College Students Should Know about Stay...](https://teen.allwomenstalk.com/safety-tips-for-college-students/)
 - [10 Healthy Habits to Start in College ...](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 

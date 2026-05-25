@@ -42,16 +42,16 @@ While best friends are there when we need them most, they also minimize our worr
 
 ## Related Posts
 
+- [7 Things Only Your Best Friend Knows about You ...](https://teen.allwomenstalk.com/things-only-your-best-friend-knows-about-you/)
 - [demotivation](https://inspiration.allwomenstalk.com/common-types-of-demotivation-that-you-need-to-overcome/)
-- [7 Lies We All Choose to Believe to Stay Happy ...](https://funny.allwomenstalk.com/lies-we-all-choose-to-believe-to-stay-happy/)
-- [7 Everyday Things That Are Actually Contagious ...](https://lifestyle.allwomenstalk.com/everyday-things-that-are-actually-contagious/)
+- [7 things to remember everyday](https://inspiration.allwomenstalk.com/beautiful-things-to-remember-about-yourself-when-youre-depressed/)
 - [7 Lessons the UK Could Learn from Canada ...](https://travel.allwomenstalk.com/lessons-the-uk-could-learn-from-canada/)
 - [7 Standards You Should Never Lower for a Happy Lif...](https://love.allwomenstalk.com/standards-you-should-never-lower-for-a-happy-life/)
-- [7 Things Youll Learn about Yourself when You Live ...](https://lifestyle.allwomenstalk.com/things-youll-learn-about-yourself-when-you-live-by-yourself/)
-- [7 Things Only Your Best Friend Knows about You ...](https://teen.allwomenstalk.com/things-only-your-best-friend-knows-about-you/)
-- [why do i compare myself to his ex](https://inspiration.allwomenstalk.com/situations-when-you-may-be-tempted-to-compare-yourself-to-others/)
 - [7 Bitter Life Truths You Need to Hear ...](https://inspiration.allwomenstalk.com/bitter-life-truths-you-need-to-hear/)
-- [7 things to remember everyday](https://inspiration.allwomenstalk.com/beautiful-things-to-remember-about-yourself-when-youre-depressed/)
+- [7 Everyday Things That Are Actually Contagious ...](https://lifestyle.allwomenstalk.com/everyday-things-that-are-actually-contagious/)
+- [why do i compare myself to his ex](https://inspiration.allwomenstalk.com/situations-when-you-may-be-tempted-to-compare-yourself-to-others/)
+- [7 Lies We All Choose to Believe to Stay Happy ...](https://funny.allwomenstalk.com/lies-we-all-choose-to-believe-to-stay-happy/)
+- [7 Things Youll Learn about Yourself when You Live ...](https://lifestyle.allwomenstalk.com/things-youll-learn-about-yourself-when-you-live-by-yourself/)
 - [25 Signs You Are Losing Your Best Friend ...](https://allwomenstalk.com/10-signs-you-are-losing-your-best-friend/)
 - [10 Signs That Your Friend Really is Your Best Frie...](https://allwomenstalk.com/10-signs-that-your-friend-really-is-your-best-friend/)
 

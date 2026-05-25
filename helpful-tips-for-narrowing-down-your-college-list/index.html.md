@@ -48,16 +48,16 @@ If you’ve been searching for colleges for a while and a lot of schools sound v
 
 ## Related Posts
 
-- [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
-- [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
+- [Thought-provoking Points to Consider if Youre Thin...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
 - [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
 - [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
-- [Keep Calm and Grade on: Dealing with Exam Nerves s...](https://teen.allwomenstalk.com/tips-for-dealing-with-exam-nerves-so-you-can-succeed/)
-- [appreciate your time](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
-- [Thought-provoking Points to Consider if Youre Thin...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
 - [7 Things You Wish You Knew about Money in College ...](https://money.allwomenstalk.com/things-you-wish-you-knew-about-money-in-college/)
+- [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
+- [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
 - [Are You Prepared to Get Your Masters Degree ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
+- [Keep Calm and Grade on: Dealing with Exam Nerves s...](https://teen.allwomenstalk.com/tips-for-dealing-with-exam-nerves-so-you-can-succeed/)
 - [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
+- [appreciate your time](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
 - [10 Ways to Choose a College ...](https://allwomenstalk.com/10-ways-to-choose-a-college/)
 - [8 Ways to Prep for College ...](https://allwomenstalk.com/8-ways-to-prep-for-college/)
 

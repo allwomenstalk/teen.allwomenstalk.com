@@ -42,16 +42,16 @@ There you have it! Seven fabulous ways to spend your spring break that won’t l
 
 ## Related Posts
 
-- [mayan and egyptian pyramid alignment](https://travel.allwomenstalk.com/go-all-the-way-to-egypt-to-see-pyramids-no-go-to-mexico/)
 - [experiences for girls](https://travel.allwomenstalk.com/travel-experiences-for-girls-with-a-sense-of-adventure/)
-- [ocean themed things](https://travel.allwomenstalk.com/beach-themed-bucket-list-ideas-for-ocean-lovers/)
 - [best night club in cancun](https://travel.allwomenstalk.com/dance-the-night-away-in-the-hottest-nightspots-in-cancun/)
-- [meaning of immersive](https://travel.allwomenstalk.com/looking-for-travel-with-a-deeper-meaning-try-an-immersive-vacation/)
 - [ibiza clubbing holidays](https://travel.allwomenstalk.com/top-clubbing-destinations-the-best-places-to-dance-the-night-away/)
+- [hobbit house usa](https://travel.allwomenstalk.com/take-a-journey-to-middle-earth-hobbit-houses-you-can-rent-for-vacation/)
+- [ocean themed things](https://travel.allwomenstalk.com/beach-themed-bucket-list-ideas-for-ocean-lovers/)
+- [mayan and egyptian pyramid alignment](https://travel.allwomenstalk.com/go-all-the-way-to-egypt-to-see-pyramids-no-go-to-mexico/)
+- [panama overwater bungalows all inclusive](https://travel.allwomenstalk.com/you-dont-have-to-go-to-the-south-pacific-or-indian-ocean-to-stay-in-an-over-the-water-bungalow/)
+- [meaning of immersive](https://travel.allwomenstalk.com/looking-for-travel-with-a-deeper-meaning-try-an-immersive-vacation/)
 - [one mans mountains](https://travel.allwomenstalk.com/a-travel-story-one-man-and-his-tent-and-a-lot-of-mountains/)
 - [bucket list trips you can afford](https://travel.allwomenstalk.com/think-you-cant-afford-a-bucket-list-try-these-fabulous-freebies-around-the-world/)
-- [hobbit house usa](https://travel.allwomenstalk.com/take-a-journey-to-middle-earth-hobbit-houses-you-can-rent-for-vacation/)
-- [panama overwater bungalows all inclusive](https://travel.allwomenstalk.com/you-dont-have-to-go-to-the-south-pacific-or-indian-ocean-to-stay-in-an-over-the-water-bungalow/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [6 Budget Vacation Ideas for the Penny Pincher...](https://travel.allwomenstalk.com/budget-vacation-ideas-for-the-penny-pincher/)
 

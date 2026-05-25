@@ -68,16 +68,16 @@ I can safely say that I have few regrets in my life, not because I've never done
 
 ## Related Posts
 
-- [uncomfortable situation at school](https://teen.allwomenstalk.com/awkward-high-school-situations-that-happened-to-most-of-us/)
-- [life changing experiences](https://inspiration.allwomenstalk.com/life-changing-experiences-you-should-be-open-to-trying/)
 - [henry ford when everything seems](https://inspiration.allwomenstalk.com/things-to-remember-when-everything-seems-to-be-going-wrong/)
-- [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
-- [you dont have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
-- [toughest life lessons](https://inspiration.allwomenstalk.com/difficult-life-lessons-im-glad-to-have-learned/)
-- [how to join the real world](https://lifestyle.allwomenstalk.com/important-things-that-you-only-learn-in-the-real-world/)
 - [people with glasses on](https://lifestyle.allwomenstalk.com/things-only-people-with-glasses-can-relate-to/)
 - [sister wives merchandise](https://movies.allwomenstalk.com/thought-provoking-lessons-learned-from-sister-wives/)
+- [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
+- [life changing experiences](https://inspiration.allwomenstalk.com/life-changing-experiences-you-should-be-open-to-trying/)
+- [toughest life lessons](https://inspiration.allwomenstalk.com/difficult-life-lessons-im-glad-to-have-learned/)
+- [how to join the real world](https://lifestyle.allwomenstalk.com/important-things-that-you-only-learn-in-the-real-world/)
+- [uncomfortable situation at school](https://teen.allwomenstalk.com/awkward-high-school-situations-that-happened-to-most-of-us/)
 - [paris color riche le stylo eye unforgettable lilac](https://movies.allwomenstalk.com/things-breaking-bad-has-taught-us/)
+- [you dont have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [8 Things You Need to Know about Your Teen ...](https://parenting.allwomenstalk.com/things-you-need-to-know-about-your-teen/)
 

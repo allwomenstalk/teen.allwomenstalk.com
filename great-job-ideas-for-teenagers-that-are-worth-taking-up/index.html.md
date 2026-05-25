@@ -42,16 +42,16 @@ There are many tremendous job opportunities for teenagers. The key is to find so
 
 ## Related Posts
 
-- [im not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
-- [be stuck in traffic](https://travel.allwomenstalk.com/things-to-do-while-stuck-in-traffic/)
-- [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
-- [spring vacation ideas for families](https://parenting.allwomenstalk.com/activities-or-mini-vacation-ideas-to-do-with-your-kids-on-spring-break/)
-- [year in new zealand](https://travel.allwomenstalk.com/ways-to-spend-a-year-in-new-zealand/)
 - [legal teenies](https://teen.allwomenstalk.com/legal-things-teens-can-do-for-fun/)
-- [pi day poems](https://parenting.allwomenstalk.com/fun-ideas-for-celebrating-national-pi-day/)
-- [what to do when snowed in](https://lifestyle.allwomenstalk.com/fun-things-to-do-if-youre-snowed-in/)
+- [im not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
 - [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
+- [spring vacation ideas for families](https://parenting.allwomenstalk.com/activities-or-mini-vacation-ideas-to-do-with-your-kids-on-spring-break/)
+- [pi day poems](https://parenting.allwomenstalk.com/fun-ideas-for-celebrating-national-pi-day/)
+- [year in new zealand](https://travel.allwomenstalk.com/ways-to-spend-a-year-in-new-zealand/)
+- [what to do when snowed in](https://lifestyle.allwomenstalk.com/fun-things-to-do-if-youre-snowed-in/)
+- [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
 - [scored it free stuff](https://money.allwomenstalk.com/awesome-ways-to-score-free-stuff/)
+- [be stuck in traffic](https://travel.allwomenstalk.com/things-to-do-while-stuck-in-traffic/)
 - [7 Ways for Teens to Make Money ...](https://allwomenstalk.com/7-ways-for-teens-to-make-money/)
 - [7 Unusual but Fun Ways to Earn Extra Money ...](https://allwomenstalk.com/7-unusual-but-fun-ways-to-earn-extra-money/)
 

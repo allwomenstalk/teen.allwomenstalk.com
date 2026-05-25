@@ -42,16 +42,16 @@ So if people are mean to you because you're not popular, ignore them. They're th
 
 ## Related Posts
 
+- [excuses to get out of plans with friends](https://funny.allwomenstalk.com/excuses-to-use-the-next-time-you-cancel-plans/)
+- [why do you deserve me](https://lifestyle.allwomenstalk.com/reasons-you-deserve-and-need-me-time/)
+- [guy rushing into relationship](https://love.allwomenstalk.com/reasons-why-you-shouldnt-rush-into-a-relationship/)
+- [should i give this guy a chance](https://love.allwomenstalk.com/reasons-not-to-give-him-a-chance/)
+- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
+- [how to get into a relationship in college](https://love.allwomenstalk.com/reasons-to-hold-out-on-a-relationship-in-college/)
+- [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
 - [is a- bad](https://teen.allwomenstalk.com/reasons-not-to-freak-out-if-you-get-a-bad-grade/)
 - [is silence attractive](https://love.allwomenstalk.com/reasons-to-date-a-quiet-guy/)
 - [never try to be like someone else](https://inspiration.allwomenstalk.com/reasons-to-avoid-trying-to-be-someone-else/)
-- [excuses to get out of plans with friends](https://funny.allwomenstalk.com/excuses-to-use-the-next-time-you-cancel-plans/)
-- [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
-- [why do you deserve me](https://lifestyle.allwomenstalk.com/reasons-you-deserve-and-need-me-time/)
-- [how to get into a relationship in college](https://love.allwomenstalk.com/reasons-to-hold-out-on-a-relationship-in-college/)
-- [should i give this guy a chance](https://love.allwomenstalk.com/reasons-not-to-give-him-a-chance/)
-- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
-- [guy rushing into relationship](https://love.allwomenstalk.com/reasons-why-you-shouldnt-rush-into-a-relationship/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 - [7 Reasons Some do Not Go to College ...](https://allwomenstalk.com/7-reasons-some-do-not-go-to-college/)
 

@@ -50,16 +50,16 @@ It's no simple task to ace a difficult class, but it isn’t impossible either! 
 
 ## Related Posts
 
-- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
-- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
 - [how to stand out in your college application](https://teen.allwomenstalk.com/ways-to-make-your-college-application-stand-out/)
-- [should i go away for college](https://teen.allwomenstalk.com/reasons-to-move-away-for-college/)
-- [teachers essay writing](https://teen.allwomenstalk.com/ways-to-write-an-essay-your-english-teacher-will-love-reading/)
 - [feel at home special school](https://teen.allwomenstalk.com/very-useful-tips-on-how-to-feel-at-home-at-a-new-school/)
-- [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
-- [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
-- [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
 - [majors for indecisive students](https://teen.allwomenstalk.com/reliable-majors-to-pursue-when-youre-unsure-of-what-you-want-to-do-after-college/)
+- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
+- [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
+- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
+- [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
+- [teachers essay writing](https://teen.allwomenstalk.com/ways-to-write-an-essay-your-english-teacher-will-love-reading/)
+- [should i go away for college](https://teen.allwomenstalk.com/reasons-to-move-away-for-college/)
+- [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
 - [10 Study Tips ...](https://allwomenstalk.com/10-study-tips/)
 - [15 Tips for Passing Exams Successfully ...](https://allwomenstalk.com/15-tips-for-passing-exams-successfully/)
 

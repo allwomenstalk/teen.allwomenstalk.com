@@ -42,16 +42,16 @@ TED Talks are a great way to pass the time or as a supplement for binge-watching
 
 ## Related Posts
 
-- [calvin and hobbes box](https://books.allwomenstalk.com/things-you-can-learn-from-calvin-hobbes/)
-- [best friend wallpaper](https://lifestyle.allwomenstalk.com/life-lessons-only-your-best-friends-can-teach-you/)
+- [dislikes of a person](https://inspiration.allwomenstalk.com/traits-you-hate-about-yourself-that-are-actually-positive/)
 - [best friend comparison](https://funny.allwomenstalk.com/differences-between-friends-and-bffs/)
-- [interesting theories](https://lifestyle.allwomenstalk.com/obscure-theories-that-will-change-your-vision-of-the-world/)
-- [wallpaper mn love images](https://love.allwomenstalk.com/terrifying-things-that-arent-scary-when-you-find-the-right-person/)
-- [winning isnt everything quotes](https://inspiration.allwomenstalk.com/important-life-lessons-from-calvin-and-hobbes/)
 - [misconceptions of extroverts](https://inspiration.allwomenstalk.com/common-misconceptions-about-extroverts/)
+- [winning isnt everything quotes](https://inspiration.allwomenstalk.com/important-life-lessons-from-calvin-and-hobbes/)
 - [it wont matter](https://inspiration.allwomenstalk.com/things-stressing-you-out-now-that-wont-matter-a-year-from-now/)
 - [what makes a good town](https://lifestyle.allwomenstalk.com/neighborly-traits-small-town-people-possess/)
-- [dislikes of a person](https://inspiration.allwomenstalk.com/traits-you-hate-about-yourself-that-are-actually-positive/)
+- [wallpaper mn love images](https://love.allwomenstalk.com/terrifying-things-that-arent-scary-when-you-find-the-right-person/)
+- [calvin and hobbes box](https://books.allwomenstalk.com/things-you-can-learn-from-calvin-hobbes/)
+- [interesting theories](https://lifestyle.allwomenstalk.com/obscure-theories-that-will-change-your-vision-of-the-world/)
+- [best friend wallpaper](https://lifestyle.allwomenstalk.com/life-lessons-only-your-best-friends-can-teach-you/)
 - [7 Life Strategies I Would Tell My Younger Self ...](https://lifestyle.allwomenstalk.com/life-strategies-i-would-tell-my-younger-self/)
 - [7 Timeless Pieces of Advice That Anyone Can Use .....](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
 

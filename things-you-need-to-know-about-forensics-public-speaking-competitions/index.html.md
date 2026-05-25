@@ -42,16 +42,16 @@ These are just the basics of Forensic’s public speaking competitions. I enjoye
 
 ## Related Posts
 
-- [what are the rules to backgammon](https://lifestyle.allwomenstalk.com/rules-of-backgammon-that-you-need-to-know/)
 - [bad reputation in school](https://teen.allwomenstalk.com/ways-to-avoid-getting-a-bad-reputation/)
-- [what to do at the club](https://lifestyle.allwomenstalk.com/clubbing-rules-to-follow-every-single-time/)
 - [procrastination trap](https://lifestyle.allwomenstalk.com/common-procrastination-traps-and-how-to-avoid-them/)
-- [last minute prom tips](https://teen.allwomenstalk.com/tips-for-having-the-time-of-your-life-at-prom/)
-- [baked goods to mail](https://lifestyle.allwomenstalk.com/helpful-tips-for-mailing-baked-goods-in-care-packages/)
-- [intuitive learner](https://teen.allwomenstalk.com/learner-types-and-how-to-play-to-their-strengths/)
-- [turn off raise to speak apple watch](https://lifestyle.allwomenstalk.com/tips-on-how-to-extend-you-iphone-battery-life/)
 - [first car essentials](https://teen.allwomenstalk.com/tips-for-taking-care-of-your-first-car/)
 - [writing tips for bloggers](https://lifestyle.allwomenstalk.com/writing-tips-for-bloggers-to-remember-for-every-single-post/)
+- [what are the rules to backgammon](https://lifestyle.allwomenstalk.com/rules-of-backgammon-that-you-need-to-know/)
+- [baked goods to mail](https://lifestyle.allwomenstalk.com/helpful-tips-for-mailing-baked-goods-in-care-packages/)
+- [intuitive learner](https://teen.allwomenstalk.com/learner-types-and-how-to-play-to-their-strengths/)
+- [what to do at the club](https://lifestyle.allwomenstalk.com/clubbing-rules-to-follow-every-single-time/)
+- [turn off raise to speak apple watch](https://lifestyle.allwomenstalk.com/tips-on-how-to-extend-you-iphone-battery-life/)
+- [last minute prom tips](https://teen.allwomenstalk.com/tips-for-having-the-time-of-your-life-at-prom/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Encyclopedia Facts You Can Use in a Conversation...](https://allwomenstalk.com/7-encyclopedia-facts-you-can-use-in-a-conversation-with-various-professionals/)
 

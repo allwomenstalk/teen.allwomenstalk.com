@@ -54,16 +54,16 @@ If your prospective prom date spends most of his time at school and at home play
 
 ## Related Posts
 
-- [rules for first dates](https://love.allwomenstalk.com/golden-rules-for-a-successful-first-date/)
 - [first date nerves](https://love.allwomenstalk.com/tips-for-reducing-first-date-nerves/)
 - [how to train a boyfriend](https://love.allwomenstalk.com/how-to-train-your-boyfriend/)
-- [how to find your crushs number](https://love.allwomenstalk.com/subtle-ways-to-get-your-crushs-phone-number/)
 - [games to play over text with crush](https://love.allwomenstalk.com/texting-games-to-play-with-a-guy/)
-- [steps for kissing](https://love.allwomenstalk.com/easy-steps-to-being-a-better-kisser/)
-- [messages to make him melt](https://love.allwomenstalk.com/things-to-say-to-your-man-to-make-him-melt/)
-- [paris riche le smoky blue spark](https://love.allwomenstalk.com/ways-to-make-anyone-fall-in-love-with-you/)
-- [kisses for him images](https://love.allwomenstalk.com/how-to-kiss-him-so-he-keeps-coming-back-for-more/)
 - [crush likes my friend](https://love.allwomenstalk.com/ways-to-deal-when-your-crush-likes-your-best-friend/)
+- [how to find your crushs number](https://love.allwomenstalk.com/subtle-ways-to-get-your-crushs-phone-number/)
+- [paris riche le smoky blue spark](https://love.allwomenstalk.com/ways-to-make-anyone-fall-in-love-with-you/)
+- [messages to make him melt](https://love.allwomenstalk.com/things-to-say-to-your-man-to-make-him-melt/)
+- [kisses for him images](https://love.allwomenstalk.com/how-to-kiss-him-so-he-keeps-coming-back-for-more/)
+- [rules for first dates](https://love.allwomenstalk.com/golden-rules-for-a-successful-first-date/)
+- [steps for kissing](https://love.allwomenstalk.com/easy-steps-to-being-a-better-kisser/)
 - [9 Ways to Get a Guy to Commit ...](https://love.allwomenstalk.com/ways-to-get-a-guy-to-commit/)
 - [7 Tried Tips on How to Make a Man Commit ...](https://love.allwomenstalk.com/tried-tips-on-how-to-make-a-man-commit/)
 

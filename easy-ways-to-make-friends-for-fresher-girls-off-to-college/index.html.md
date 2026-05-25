@@ -64,16 +64,16 @@ Even if it takes you a while to make new friends at college, don't be tempted to
 
 ## Related Posts
 
-- [income minus outgo equals exactly](https://money.allwomenstalk.com/financial-advice-college-girls-need-to-follow-post-graduation/)
 - [amateur college girls](https://lifestyle.allwomenstalk.com/small-ways-college-girls-can-have-fun-during-finals/)
+- [things to do before going back to college](https://lifestyle.allwomenstalk.com/things-to-do-before-going-back-to-college/)
+- [how to get back into study mode](https://lifestyle.allwomenstalk.com/tips-to-prepare-for-school/)
 - [freshmans nerve](https://teen.allwomenstalk.com/tips-to-survive-high-school/)
+- [hottest college majors](https://lifestyle.allwomenstalk.com/ways-to-get-the-most-out-of-college/)
+- [dress tips to stand out](https://teen.allwomenstalk.com/ways-to-stand-out-on-the-first-day-of-school/)
+- [income minus outgo equals exactly](https://money.allwomenstalk.com/financial-advice-college-girls-need-to-follow-post-graduation/)
 - [best college girls](https://teen.allwomenstalk.com/college-alternatives-for-girls-not-ready-to-settle-down-on-a-school-yet/)
 - [best life hacks for students](https://lifestyle.allwomenstalk.com/college-life-hacks/)
-- [dress tips to stand out](https://teen.allwomenstalk.com/ways-to-stand-out-on-the-first-day-of-school/)
-- [things to do before going back to college](https://lifestyle.allwomenstalk.com/things-to-do-before-going-back-to-college/)
 - [business essay writing tips](https://lifestyle.allwomenstalk.com/how-to-write-a-business-essay/)
-- [hottest college majors](https://lifestyle.allwomenstalk.com/ways-to-get-the-most-out-of-college/)
-- [how to get back into study mode](https://lifestyle.allwomenstalk.com/tips-to-prepare-for-school/)
 - [7 Outrageously Excellent Ways to Find New Friends ...](https://lifestyle.allwomenstalk.com/outrageously-excellent-ways-to-find-new-friends/)
 - [10 General Tips for High School Girls ...](https://allwomenstalk.com/10-general-tips-for-high-school-girls/)
 

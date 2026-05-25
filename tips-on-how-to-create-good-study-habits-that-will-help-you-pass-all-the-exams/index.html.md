@@ -44,16 +44,16 @@ There are a lot of very efficient ways to study for the exams. I just mentioned 
 
 ## Related Posts
 
-- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
-- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
-- [9 things in the world](https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/)
-- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
-- [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
-- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
 - [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
-- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
-- [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
 - [good health habits for students](https://teen.allwomenstalk.com/healthy-habits-to-start-in-high-school/)
+- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
+- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
+- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
+- [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
+- [9 things in the world](https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/)
+- [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
+- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
+- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
 - [15 Tips for Passing Exams Successfully ...](https://allwomenstalk.com/15-tips-for-passing-exams-successfully/)
 - [10 Top Tips on Getting Ready for Exams ...](https://allwomenstalk.com/10-top-tips-on-getting-ready-for-exams/)
 

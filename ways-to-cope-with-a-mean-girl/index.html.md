@@ -42,16 +42,16 @@ We've all faced mean girls before, but we don't always deal with them in the bes
 
 ## Related Posts
 
+- [aw qward situation](https://funny.allwomenstalk.com/clever-ways-to-survive-an-awkward-situation/)
 - [how to help the elderly in my community](https://lifestyle.allwomenstalk.com/ways-to-help-the-elderly-and-vulnerable-in-your-community/)
+- [how to deal with social media jealousy](https://lifestyle.allwomenstalk.com/ways-to-deal-with-social-media-jealousy/)
 - [disengage mean](https://inspiration.allwomenstalk.com/ways-to-disengage-from-a-negative-person/)
+- [dealing with a controlling wife](https://love.allwomenstalk.com/very-useful-tips-on-how-to-deal-with-a-controlling-spouse/)
+- [what makes a good conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist/)
 - [how to deal with a short tempered person](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-a-hot-tempered-boss/)
-- [parents cut me off financially](https://teen.allwomenstalk.com/tips-for-how-to-survive-when-your-parents-cut-you-off/)
 - [how to write an angry letter examples](https://lifestyle.allwomenstalk.com/steps-to-writing-an-angry-letter-and-moving-on/)
 - [how to help a friend with bipolar](https://health.allwomenstalk.com/ways-to-be-a-good-friend-to-someone-with-bipolar-disorder/)
-- [dealing with a controlling wife](https://love.allwomenstalk.com/very-useful-tips-on-how-to-deal-with-a-controlling-spouse/)
-- [aw qward situation](https://funny.allwomenstalk.com/clever-ways-to-survive-an-awkward-situation/)
-- [what makes a good conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist/)
-- [how to deal with social media jealousy](https://lifestyle.allwomenstalk.com/ways-to-deal-with-social-media-jealousy/)
+- [parents cut me off financially](https://teen.allwomenstalk.com/tips-for-how-to-survive-when-your-parents-cut-you-off/)
 - [7 Ways to Handle an Insult ...](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
 - [9 Ways to Deal with Bullying at School ...](https://lifestyle.allwomenstalk.com/ways-to-deal-with-bullying-at-school/)
 

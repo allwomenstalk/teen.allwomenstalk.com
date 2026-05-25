@@ -42,16 +42,16 @@ If you’ve never lived with anyone other than family before, dorming will certa
 
 ## Related Posts
 
-- [perks of having a roommate](https://lifestyle.allwomenstalk.com/why-having-a-roommate-is-actually-awesome/)
+- [i want to live alone but cant afford it](https://lifestyle.allwomenstalk.com/sharing-tips-for-ladies-who-cant-afford-to-live-alone/)
+- [how to celebrate moving in together](https://love.allwomenstalk.com/know-the-pros-and-cons-of-moving-in-together-before-you-take-that-leap/)
 - [decorating first apartment](https://diy.allwomenstalk.com/real-world-101-how-to-decorate-your-first-apartment/)
-- [what to bring to sleepover at boyfriends](https://love.allwomenstalk.com/dont-forget-these-essentials-when-you-sleep-over-his-house/)
+- [dark secrets.com](https://lifestyle.allwomenstalk.com/deep-dark-secrets-you-share-with-your-roommate/)
 - [when you fall asleep first at the sleepover](https://love.allwomenstalk.com/etiquette-for-sleeping-at-your-boyfriends-house/)
 - [things to do with your boyfriend at his house](https://love.allwomenstalk.com/necessities-to-leave-in-your-boyfriends-bathroom/)
-- [i want to live alone but cant afford it](https://lifestyle.allwomenstalk.com/sharing-tips-for-ladies-who-cant-afford-to-live-alone/)
+- [perks of having a roommate](https://lifestyle.allwomenstalk.com/why-having-a-roommate-is-actually-awesome/)
 - [how to get an apartment](https://money.allwomenstalk.com/how-to-turn-your-apartment-into-a-money-making-machine/)
-- [how to celebrate moving in together](https://love.allwomenstalk.com/know-the-pros-and-cons-of-moving-in-together-before-you-take-that-leap/)
-- [dark secrets.com](https://lifestyle.allwomenstalk.com/deep-dark-secrets-you-share-with-your-roommate/)
 - [How to Make a Great Start as New Roomies ...](https://lifestyle.allwomenstalk.com/how-to-make-a-great-start-as-new-roomies/)
+- [what to bring to sleepover at boyfriends](https://love.allwomenstalk.com/dont-forget-these-essentials-when-you-sleep-over-his-house/)
 - [Top 12 Tips for Starting a New Relationship ...](https://allwomenstalk.com/top-12-tips-for-starting-a-new-relationship/)
 - [9 Helpful Tips when Starting a New Relationship .....](https://love.allwomenstalk.com/helpful-tips-when-starting-a-new-relationship/)
 

@@ -47,16 +47,16 @@ Dealing with peer pressure can be difficult sometimes, but if you stay true to y
 
 ## Related Posts
 
-- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
-- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
-- [why do my parents treat my siblings better than me](https://parenting.allwomenstalk.com/tips-if-your-parents-treat-you-and-your-brother-differently/)
-- [how to write peaceful without family](https://lifestyle.allwomenstalk.com/tips-to-make-peace-with-your-chaotic-family/)
-- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
-- [harassed in public](https://lifestyle.allwomenstalk.com/ways-to-deal-with-public-harassment/)
 - [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
 - [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
+- [harassed in public](https://lifestyle.allwomenstalk.com/ways-to-deal-with-public-harassment/)
+- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
+- [why do my parents treat my siblings better than me](https://parenting.allwomenstalk.com/tips-if-your-parents-treat-you-and-your-brother-differently/)
 - [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
+- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
 - [cant forgive someone](https://lifestyle.allwomenstalk.com/steps-to-take-when-you-cant-forgive-a-friend/)
+- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
+- [how to write peaceful without family](https://lifestyle.allwomenstalk.com/tips-to-make-peace-with-your-chaotic-family/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Positive Tips to Avoid Peer Pressure ...](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
 

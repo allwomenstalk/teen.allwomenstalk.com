@@ -45,15 +45,15 @@ Going to college is expensive but work-study may take a little bit off your shou
 ## Related Posts
 
 - [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
-- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
-- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
 - [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
 - [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
-- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
-- [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
+- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
 - [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
 - [easy things to go to school for](https://lifestyle.allwomenstalk.com/alternative-things-to-do-instead-of-going-to-college/)
+- [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
+- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
 - [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
+- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
 - [8 Best Part Time Jobs for Students ...](https://lifestyle.allwomenstalk.com/best-part-time-jobs-for-students/)
 - [7 Ways for Teens to Make Money ...](https://allwomenstalk.com/7-ways-for-teens-to-make-money/)
 

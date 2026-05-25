@@ -56,16 +56,16 @@ College is all about trying new things, so if you apply to any one of these majo
 
 ## Related Posts
 
+- [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
 - [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
-- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
-- [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
 - [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
-- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
-- [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
 - [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
 - [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
+- [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
+- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
+- [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
+- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
 - [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
-- [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
 - [7 Things to do after Your High School Graduation ....](https://allwomenstalk.com/7-things-to-do-after-graduation/)
 - [8 Reasons to Go to College ...](https://allwomenstalk.com/8-reasons-to-go-to-college/)
 

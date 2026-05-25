@@ -42,16 +42,16 @@ If you're applying to colleges, this semester has probably been a stressful one.
 
 ## Related Posts
 
-- [thatll be 8 dollars gif](https://lifestyle.allwomenstalk.com/bad-habits-thatll-make-college-life-miserable/)
-- [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
-- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
-- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
-- [what does freshman 15 mean](https://weightloss.allwomenstalk.com/how-the-freshman-can-sneak-up-on-you/)
-- [travel tips for students](https://travel.allwomenstalk.com/you-have-to-see-these-top-travel-tips-for-college-students/)
-- [college peer pressure](https://teen.allwomenstalk.com/how-to-resist-peer-pressure-in-college/)
-- [moving out of dorm hacks](https://lifestyle.allwomenstalk.com/professional-hacks-for-a-super-smooth-college-moving-in-day/)
-- [sparknotes com](https://lifestyle.allwomenstalk.com/websites-like-spark-notes-thatll-help-you-in-school/)
 - [useful websites for college students](https://lifestyle.allwomenstalk.com/websites-that-all-college-students-should-bookmark/)
+- [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
+- [travel tips for students](https://travel.allwomenstalk.com/you-have-to-see-these-top-travel-tips-for-college-students/)
+- [sparknotes com](https://lifestyle.allwomenstalk.com/websites-like-spark-notes-thatll-help-you-in-school/)
+- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
+- [thatll be 8 dollars gif](https://lifestyle.allwomenstalk.com/bad-habits-thatll-make-college-life-miserable/)
+- [what does freshman 15 mean](https://weightloss.allwomenstalk.com/how-the-freshman-can-sneak-up-on-you/)
+- [college peer pressure](https://teen.allwomenstalk.com/how-to-resist-peer-pressure-in-college/)
+- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
+- [moving out of dorm hacks](https://lifestyle.allwomenstalk.com/professional-hacks-for-a-super-smooth-college-moving-in-day/)
 - [7 Ways to Cut the Cost of College ...](https://money.allwomenstalk.com/ways-to-cut-the-cost-of-college/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 
