@@ -3,7 +3,7 @@ title: "THESE Are the Things Your 20-Something Self Wants to Tell Your Teen Self
 description: "Live Life at Your Own Pace; Hold out until You're Ready; Take the Boring Classes; Take a Class Just for Fun; Find a Guy Who Lifts You up, Not Brings You down; More ..."
 url: "https://teen.allwomenstalk.com/this-is-what-your-year-old-self-wants-to-tell-your-teen-self/"
 category: "teen"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # THESE Are the Things Your 20\-Something Self Wants to Tell Your Teen Self ...
@@ -60,16 +60,16 @@ If you take nothing else away, remember this- there is absolutely, positively NO
 
 ## Related Posts
 
-- [short stories about happiness](https://love.allwomenstalk.com/short-story-the-key-to-happiness/)
+- [always yourself](https://inspiration.allwomenstalk.com/the-real-reasons-why-you-should-always-be-yourself/)
+- [do all geniuses talk to themselves](https://lifestyle.allwomenstalk.com/people-who-talk-to-themselves-arent-crazy-theyre-geniuses/)
+- [37aa shoe size in us](https://inspiration.allwomenstalk.com/making-the-most-of-being-different/)
 - [post grad life](https://lifestyle.allwomenstalk.com/the-downside-to-life-as-a-post-grad/)
 - [reasons why you are amazing](https://love.allwomenstalk.com/reasons-youre-more-desirable-than-you-think/)
-- [dreaming of running effortlessly](https://lifestyle.allwomenstalk.com/what-these-dreams-are-trying-to-tell-you/)
-- [gut instincts you should never ignore in a relatio...](https://lifestyle.allwomenstalk.com/gut-feelings-you-should-never-ignore/)
-- [37aa shoe size in us](https://inspiration.allwomenstalk.com/making-the-most-of-being-different/)
-- [always yourself](https://inspiration.allwomenstalk.com/the-real-reasons-why-you-should-always-be-yourself/)
-- [types of friends in a group of 5](https://lifestyle.allwomenstalk.com/types-of-friends-we-all-have-or-have-had/)
+- [short stories about happiness](https://love.allwomenstalk.com/short-story-the-key-to-happiness/)
 - [how to read people](https://lifestyle.allwomenstalk.com/how-to-read-people/)
-- [do all geniuses talk to themselves](https://lifestyle.allwomenstalk.com/people-who-talk-to-themselves-arent-crazy-theyre-geniuses/)
+- [types of friends in a group of 5](https://lifestyle.allwomenstalk.com/types-of-friends-we-all-have-or-have-had/)
+- [gut instincts you should never ignore in a relatio...](https://lifestyle.allwomenstalk.com/gut-feelings-you-should-never-ignore/)
+- [dreaming of running effortlessly](https://lifestyle.allwomenstalk.com/what-these-dreams-are-trying-to-tell-you/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [Love Tips: 8 Things You Wish You Knew when You Wer...](https://love.allwomenstalk.com/love-tips-things-you-wish-you-knew-when-you-were-a-teenager/)
 

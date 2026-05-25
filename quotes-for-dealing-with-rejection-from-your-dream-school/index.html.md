@@ -3,7 +3,7 @@ title: "7 Quotes for Dealing with Rejection from Your Dream School ..."
 description: "Isaac Asimov; Liam Neeson; Bo Bennett; Mark Twain; James Lee Burke; More ..."
 url: "https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/"
 category: "teen"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Quotes for Dealing with Rejection from Your Dream School ...
@@ -56,16 +56,16 @@ I am currently in the throes of college application season, so I know how stress
 
 ## Related Posts
 
-- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
-- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
+- [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
 - [unmarried woman quotes funny](https://funny.allwomenstalk.com/funny-quotes-for-all-the-single-ladies/)
 - [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
-- [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
-- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
-- [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
+- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
 - [the right opinion](https://inspiration.allwomenstalk.com/quotes-about-not-letting-others-opinions-bother-you/)
+- [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
+- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
+- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
+- [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
 - [christmas together quotes](https://love.allwomenstalk.com/quotes-about-christmas-love-and-cheer/)
-- [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 - [7 Tips on Finding Motivation to Go to College ...](https://allwomenstalk.com/7-tips-on-finding-motivation-to-go-to-college/)
 
