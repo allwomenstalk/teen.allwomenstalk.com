@@ -3,7 +3,7 @@ title: "7 Pieces of Advice for High School Graduates ..."
 description: "Ask Questions; Treat Crappy Jobs like Your Dream Job; Best Years Are Yet to Come; Chase Your Passion; Avoid the Debt Trap; More ..."
 url: "https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/"
 category: "teen"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Pieces of Advice for High School Graduates ...
@@ -43,15 +43,15 @@ I wish I had known some of these things when I was fresh out of high school. Wha
 ## Related Posts
 
 - [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
-- [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
-- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
-- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
-- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
+- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
 - [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
+- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
+- [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
 - [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
 - [what do you get after graduating college](https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/)
-- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
-- [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
+- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
+- [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
+- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
 - [7 Things to do after Your High School Graduation ....](https://allwomenstalk.com/7-things-to-do-after-graduation/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 

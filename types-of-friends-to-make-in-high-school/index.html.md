@@ -3,7 +3,7 @@ title: "7 Types of Friends to Make in High School ..."
 description: "The over Achiever; The Wild One; The Moral Compass; The Good Listener; The BookWorm; More ..."
 url: "https://teen.allwomenstalk.com/types-of-friends-to-make-in-high-school/"
 category: "teen"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Types of Friends to Make in High School ...
@@ -58,14 +58,14 @@ One of the most important components of high school is the friends you’ll make
 
 - [clubs to join in high school](https://teen.allwomenstalk.com/clubs-to-join-at-your-high-school/)
 - [7 effective study habits](https://teen.allwomenstalk.com/tips-on-how-to-create-good-study-habits-that-will-help-you-pass-all-the-exams/)
-- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
-- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
-- [9 things in the world](https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/)
-- [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
-- [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
 - [good health habits for students](https://teen.allwomenstalk.com/healthy-habits-to-start-in-high-school/)
-- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
+- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
 - [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
+- [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
+- [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
+- [9 things in the world](https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/)
+- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
+- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
 - [7 Outrageously Excellent Ways to Find New Friends ...](https://lifestyle.allwomenstalk.com/outrageously-excellent-ways-to-find-new-friends/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 

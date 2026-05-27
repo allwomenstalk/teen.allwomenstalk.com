@@ -3,7 +3,7 @@ title: "9 Things to do before You Graduate High School ..."
 description: "Learn an Instrument; Martial Arts; Yoga; Go on a Road Trip; Get Your Driver's License; More ..."
 url: "https://teen.allwomenstalk.com/things-to-do-before-you-graduate-high-school/"
 category: "teen"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 Things to do before You Graduate High School ...
@@ -50,16 +50,16 @@ I hope that in this list you’ve found a few things you’ll try before graduat
 
 ## Related Posts
 
-- [7 Things to do when Youre in College ...](https://teen.allwomenstalk.com/things-to-do-when-youre-in-college/)
+- [9 Ways to Stay Organized Throughout the School Yea...](https://teen.allwomenstalk.com/ways-to-stay-organized-throughout-the-school-year/)
 - [7 Reasons to Apply to Californian Colleges ...](https://teen.allwomenstalk.com/reasons-to-apply-to-californian-colleges/)
+- [7 Things to do when Youre in College ...](https://teen.allwomenstalk.com/things-to-do-when-youre-in-college/)
+- [7 Ways to Study for an Exam when You Have a Week t...](https://teen.allwomenstalk.com/ways-to-study-for-an-exam-when-you-have-a-week-to-go/)
+- [7 Things Youll Actually Spend Time Doing in Colleg...](https://funny.allwomenstalk.com/things-youll-actually-spend-time-doing-in-college/)
+- [7 Extracurricular Activities to Try While in Colle...](https://lifestyle.allwomenstalk.com/extracurricular-activities-to-try-while-in-college/)
 - [7 Ways to Prepare for the May Test Season ...](https://teen.allwomenstalk.com/ways-to-prepare-for-the-may-test-season/)
 - [7 Motivating Factors to Help You Survive the Schoo...](https://teen.allwomenstalk.com/motivating-factors-to-help-you-survive-the-school-year/)
 - [7 Amazing Tech Schools to Consider ...](https://teen.allwomenstalk.com/amazing-tech-schools-to-consider/)
-- [9 Ways to Stay Organized Throughout the School Yea...](https://teen.allwomenstalk.com/ways-to-stay-organized-throughout-the-school-year/)
-- [7 Ways to Study for an Exam when You Have a Week t...](https://teen.allwomenstalk.com/ways-to-study-for-an-exam-when-you-have-a-week-to-go/)
-- [7 Extracurricular Activities to Try While in Colle...](https://lifestyle.allwomenstalk.com/extracurricular-activities-to-try-while-in-college/)
 - [7 Easy Ways to Travel when in College ...](https://travel.allwomenstalk.com/easy-ways-to-travel-when-in-college/)
-- [7 Things Youll Actually Spend Time Doing in Colleg...](https://funny.allwomenstalk.com/things-youll-actually-spend-time-doing-in-college/)
 - [7 Things to do after Your High School Graduation ....](https://allwomenstalk.com/7-things-to-do-after-graduation/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 

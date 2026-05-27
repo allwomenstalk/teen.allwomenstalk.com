@@ -3,7 +3,7 @@ title: "Why It Really Doesnt Matter if Youre Not Popular at School ..."
 description: "Some People Have to Buy Their Friends; Quality, Not Quantity; Other People's Opinions Aren't Important; You Have Your Good Points, and There's Nothing Wrong with You; High School Will Be behind You One Day; More ..."
 url: "https://teen.allwomenstalk.com/things-to-remember-if-youre-not-a-popular-kid/"
 category: "teen"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Why It Really Doesnt Matter if Youre Not Popular at School ...
@@ -58,16 +58,16 @@ Don't beat yourself up because you don't have tons of friends. What matters is h
 
 ## Related Posts
 
-- [types of vices and virtues](https://lifestyle.allwomenstalk.com/the-deadly-vices-and-how-to-overcome-them-with-7-virtues/)
-- [post grad life](https://lifestyle.allwomenstalk.com/the-downside-to-life-as-a-post-grad/)
-- [khloe kardashian bigger the hoop](https://inspiration.allwomenstalk.com/afraid-of-missing-out-dont-be/)
-- [37aa shoe size in us](https://inspiration.allwomenstalk.com/making-the-most-of-being-different/)
+- [what is the colour of kindness](https://lifestyle.allwomenstalk.com/what-does-your-favorite-color-say-about-you/)
 - [how to read people](https://lifestyle.allwomenstalk.com/how-to-read-people/)
 - [always yourself](https://inspiration.allwomenstalk.com/the-real-reasons-why-you-should-always-be-yourself/)
-- [THESE Are the Things Your 20-Something Self Wants ...](https://teen.allwomenstalk.com/this-is-what-your-year-old-self-wants-to-tell-your-teen-self/)
-- [reasons why you are amazing](https://love.allwomenstalk.com/reasons-youre-more-desirable-than-you-think/)
+- [37aa shoe size in us](https://inspiration.allwomenstalk.com/making-the-most-of-being-different/)
+- [post grad life](https://lifestyle.allwomenstalk.com/the-downside-to-life-as-a-post-grad/)
+- [types of vices and virtues](https://lifestyle.allwomenstalk.com/the-deadly-vices-and-how-to-overcome-them-with-7-virtues/)
 - [exercise habits](https://fitness.allwomenstalk.com/habits-of-highly-effective-exercisers/)
-- [what is the colour of kindness](https://lifestyle.allwomenstalk.com/what-does-your-favorite-color-say-about-you/)
+- [reasons why you are amazing](https://love.allwomenstalk.com/reasons-youre-more-desirable-than-you-think/)
+- [khloe kardashian bigger the hoop](https://inspiration.allwomenstalk.com/afraid-of-missing-out-dont-be/)
+- [THESE Are the Things Your 20-Something Self Wants ...](https://teen.allwomenstalk.com/this-is-what-your-year-old-self-wants-to-tell-your-teen-self/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 - [7 Reasons to Be Glad Youre Not Famous ...](https://lifestyle.allwomenstalk.com/reasons-to-be-glad-youre-not-famous/)
 

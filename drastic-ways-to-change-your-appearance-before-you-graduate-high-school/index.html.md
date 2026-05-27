@@ -3,7 +3,7 @@ title: "7 Drastic Ways to Change Your Appearance before You Graduate High School
 description: "Dye Your Hair; Cut Your Hair; Get a Piercing; Get a Visible Tattoo; Update Your Wardrobe; More ..."
 url: "https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/"
 category: "teen"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Drastic Ways to Change Your Appearance before You Graduate High School ...
@@ -43,16 +43,16 @@ So, my fellow Class of 2015ers, what do you think? Are you going to make any of 
 
 ## Related Posts
 
-- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
+- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
 - [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
 - [important things to remember](https://lifestyle.allwomenstalk.com/graduation-comes-with-expectations-what-to-remember-as-your-accept-your-diploma/)
-- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
 - [how to decide between 2 colleges](https://teen.allwomenstalk.com/decisions-decisions-how-to-choose-between-your-top-two-colleges/)
-- [lonely in college](https://lifestyle.allwomenstalk.com/is-college-life-lonely-invaluable-cures-you-wont-learn-in-class/)
-- [perfect date gif](https://funny.allwomenstalk.com/gifs-that-describe-what-dating-is-like-in-college/)
-- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
-- [how to attract boys in school](https://teen.allwomenstalk.com/heres-how-to-become-popular-in-school/)
 - [outfit for graduation party](https://fashion.allwomenstalk.com/from-your-graduation-party-to-your-graduation-outfit-tips-all-seniors-should-see/)
+- [how to attract boys in school](https://teen.allwomenstalk.com/heres-how-to-become-popular-in-school/)
+- [perfect date gif](https://funny.allwomenstalk.com/gifs-that-describe-what-dating-is-like-in-college/)
+- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
+- [lonely in college](https://lifestyle.allwomenstalk.com/is-college-life-lonely-invaluable-cures-you-wont-learn-in-class/)
+- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Hair Styles to Make You Look Younger ...](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
 
