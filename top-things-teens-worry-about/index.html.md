@@ -3,7 +3,7 @@ title: "9 Top Things Teens Worry about ..."
 description: "Friends; Sex; Work; School; Further Education; More ..."
 url: "https://teen.allwomenstalk.com/top-things-teens-worry-about/"
 category: "teen"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 9 Top Things Teens Worry about ...
@@ -50,14 +50,14 @@ I know it sounds depressing but truly, it should help you feel better knowing th
 
 ## Related Posts
 
-- [the telltale signs of a highly sensitive person](https://lifestyle.allwomenstalk.com/things-highly-sensitive-people-do-differently/)
-- [gift for forgiveness](https://inspiration.allwomenstalk.com/wonderful-gifts-of-forgiveness-that-you-should-always-remember/)
-- [head tilt body language](https://lifestyle.allwomenstalk.com/messages-people-receive-from-your-body-language/)
-- [how to ignore negative criticism](https://inspiration.allwomenstalk.com/reasons-to-ignore-peoples-negative-criticism/)
 - [whats your favourite](https://food.allwomenstalk.com/things-your-cup-of-tea-might-say-about-your-personality/)
 - [misconceptions of happiness](https://inspiration.allwomenstalk.com/happiness-myths-that-could-be-holding-you-back/)
-- [describe hermione](https://books.allwomenstalk.com/of-hermione-grangers-traits-that-you-should-steal/)
+- [how to ignore negative criticism](https://inspiration.allwomenstalk.com/reasons-to-ignore-peoples-negative-criticism/)
+- [gift for forgiveness](https://inspiration.allwomenstalk.com/wonderful-gifts-of-forgiveness-that-you-should-always-remember/)
+- [head tilt body language](https://lifestyle.allwomenstalk.com/messages-people-receive-from-your-body-language/)
 - [misconceptions of introverts](https://lifestyle.allwomenstalk.com/very-popular-myths-about-introverts-that-arent-true/)
+- [the telltale signs of a highly sensitive person](https://lifestyle.allwomenstalk.com/things-highly-sensitive-people-do-differently/)
+- [describe hermione](https://books.allwomenstalk.com/of-hermione-grangers-traits-that-you-should-steal/)
 - [though provoking questions](https://inspiration.allwomenstalk.com/thought-provoking-questions-to-ask-yourself-about-your-personality/)
 - [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
 - [Top 10 Things Children May Not like ...](https://parenting.allwomenstalk.com/top-10-things-children-may-not-like/)

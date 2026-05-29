@@ -3,7 +3,7 @@ title: "9 Types of People to Avoid in High School ..."
 description: "The Seducer; The Queen Bee; The Careless One; The Show off; The Lazy One; More ..."
 url: "https://teen.allwomenstalk.com/types-of-people-to-avoid-in-high-school/"
 category: "teen"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 9 Types of People to Avoid in High School ...
@@ -52,14 +52,14 @@ In high school, you'll come across a wide variety of individuals. While none of 
 
 - [the real reason your teenager is ignoring you the ...](https://parenting.allwomenstalk.com/things-your-teen-will-do-that-you-should-probably-ignore/)
 - [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
-- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
-- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
 - [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
-- [what things should friends never do](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
-- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
-- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
 - [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
 - [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
+- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
+- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
+- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
+- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
+- [what things should friends never do](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
 - [Friendship 101: 7 Things to Avoid ...](https://allwomenstalk.com/friendship-101-7-things-to-avoid/)
 - [8 Types of People You Should Avoid ...](https://allwomenstalk.com/8-types-of-people-you-should-avoid/)
 

@@ -3,7 +3,7 @@ title: "7 Worst Types of Friends You Shouldnt Keep in Your Life ..."
 description: "The One Who Never Remembers Your Birthday; The One Who Waits for You to Make Plans; The One Who Never Tells You That She's Mad; The One Who Forgets Her Friends Exist when She Has a Boyfriend; The One Who Can Never Be Happy for You; More ..."
 url: "https://teen.allwomenstalk.com/worst-types-of-friends-you-shouldnt-keep-in-your-life/"
 category: "teen"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Worst Types of Friends You Shouldnt Keep in Your Life ...
@@ -42,16 +42,16 @@ Well, there you have it! These are seven types of "friends" that you shouldn't f
 
 ## Related Posts
 
+- [the real reason your teenager is ignoring you the ...](https://parenting.allwomenstalk.com/things-your-teen-will-do-that-you-should-probably-ignore/)
+- [how to deal with a bully at school](https://teen.allwomenstalk.com/types-of-people-to-avoid-in-high-school/)
+- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
+- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
+- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
 - [personality turn offs](https://love.allwomenstalk.com/traits-that-are-turn-offs-for-any-gender/)
 - [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
-- [how to deal with a bully at school](https://teen.allwomenstalk.com/types-of-people-to-avoid-in-high-school/)
-- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
-- [the real reason your teenager is ignoring you the ...](https://parenting.allwomenstalk.com/things-your-teen-will-do-that-you-should-probably-ignore/)
-- [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
-- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
 - [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
-- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
 - [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
+- [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
 - [7 Signs You Shouldnt Befriend Your Ex ...](https://allwomenstalk.com/7-signs-you-shouldnt-befriend-your-ex/)
 - [Friendship 101: 7 Things to Avoid ...](https://allwomenstalk.com/friendship-101-7-things-to-avoid/)
 

@@ -3,7 +3,7 @@ title: "Life-Saving Tips before You Hit up Your High School Reunion ..."
 description: "Stuff like Who's Popular and Who Isn't Doesn't Matter Anymore; People Are More Alike than They Are Different; The “Mean Girls” and “Rude Boys” Usually Don't Stay That Way; Appearances Can Be Deceiving; “Groupthink” Doesn't Always Exist; More ..."
 url: "https://teen.allwomenstalk.com/things-i-learned-at-my-high-school-reunion/"
 category: "teen"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Life\-Saving Tips before You Hit up Your High School Reunion ...
@@ -50,16 +50,16 @@ Hopefully, some of the things I've said here will also ring true for you. I know
 
 ## Related Posts
 
+- [college jitters](https://teen.allwomenstalk.com/nervous-about-going-to-college-heres-how-to-confront-your-anxieties/)
+- [eurail student discounts](https://teen.allwomenstalk.com/best-discounts-and-freebies-you-get-with-your-student-id/)
 - [how to balance love and studies](https://love.allwomenstalk.com/heres-how-to-balance-dating-and-studying-when-in-college/)
 - [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
-- [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
 - [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
-- [professor dpz](https://teen.allwomenstalk.com/tips-to-get-to-know-your-college-professor/)
-- [eurail student discounts](https://teen.allwomenstalk.com/best-discounts-and-freebies-you-get-with-your-student-id/)
 - [things to do the day before school](https://teen.allwomenstalk.com/ways-to-mentally-prepare-for-the-start-of-school/)
-- [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
 - [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
-- [college jitters](https://teen.allwomenstalk.com/nervous-about-going-to-college-heres-how-to-confront-your-anxieties/)
+- [professor dpz](https://teen.allwomenstalk.com/tips-to-get-to-know-your-college-professor/)
+- [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
+- [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
 - [10 General Tips for High School Girls ...](https://allwomenstalk.com/10-general-tips-for-high-school-girls/)
 - [9 Useful Tips for the College Student ...](https://allwomenstalk.com/9-useful-tips-for-the-college-student/)
 

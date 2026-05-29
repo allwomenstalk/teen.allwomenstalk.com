@@ -3,7 +3,7 @@ title: "How to Comfort a Friend Who Received a College Rejection Letter ..."
 description: "It Feels like the End of the World, but It’s Not; What is Meant to Be Will Be; Don’t Take It Personally; No Regrets; No One’s Business but Yours; More ..."
 url: "https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/"
 category: "teen"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # How to Comfort a Friend Who Received a College Rejection Letter ...
@@ -32,16 +32,16 @@ People can feel a lot of shame about being rejected from their dream college, an
 
 ## Related Posts
 
-- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
-- [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
-- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
-- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
-- [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
-- [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
 - [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
-- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
+- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
+- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
 - [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
+- [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
+- [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
 - [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
+- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
+- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
+- [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
 - [How to Help a Family Member Suffering from Depress...](https://health.allwomenstalk.com/tips-on-how-to-deal-with-a-depressed-family-member/)
 - [Let These Quotes Help You Cope with Rejection ...](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 

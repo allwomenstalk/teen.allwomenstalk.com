@@ -3,7 +3,7 @@ title: "7 Tips on How to Build Your Friends Self-Esteem ..."
 description: "Support Them in Their Accomplishments; Encourage a Healthy Lifestyle; Be Completely Honest; Avoid Putting Them down; Give Them the Occasional Pep-talk; More ..."
 url: "https://teen.allwomenstalk.com/tips-on-how-to-build-your-friends-self-esteem/"
 category: "teen"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Tips on How to Build Your Friends Self\-Esteem ...
@@ -43,15 +43,15 @@ While self-esteem is a very sensitive topic among the younger generation, it is 
 ## Related Posts
 
 - [7 Tips for Talking to Staff about a Problem when A...](https://lifestyle.allwomenstalk.com/tips-for-talking-to-staff-about-a-problem-when-all-you-want-to-do-is-yell/)
-- [11 Effective Ways to Talk to Your Friend about Her...](https://health.allwomenstalk.com/effective-ways-to-talk-to-your-friend-about-her-eating-disorder/)
 - [7 Ways to Deal with Overprotective Parents ...](https://teen.allwomenstalk.com/ways-to-deal-with-overprotective-parents-2/)
-- [7 Ways to Be a Positive Friend Even in the Darkest...](https://inspiration.allwomenstalk.com/ways-to-be-a-positive-friend-even-in-the-darkest-of-times/)
-- [bad conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist-2/)
-- [7 Useful Tips for Learning the Gentle Art of Sayin...](https://inspiration.allwomenstalk.com/useful-tips-for-learning-the-gentle-art-of-saying-no/)
-- [7 Helpful Ways to Cope with Bullying ...](https://teen.allwomenstalk.com/helpful-ways-to-cope-with-bullying/)
+- [11 Effective Ways to Talk to Your Friend about Her...](https://health.allwomenstalk.com/effective-ways-to-talk-to-your-friend-about-her-eating-disorder/)
 - [7 Tips on How to Handle Awkward Situations ...](https://inspiration.allwomenstalk.com/tips-on-how-to-handle-awkward-situations/)
 - [7 Tips for Dealing with Unsolicited Parenting Advi...](https://parenting.allwomenstalk.com/tips-for-dealing-with-unsolicited-parenting-advice/)
 - [7 Ways to End an Argument ...](https://love.allwomenstalk.com/ways-to-end-an-argument/)
+- [7 Helpful Ways to Cope with Bullying ...](https://teen.allwomenstalk.com/helpful-ways-to-cope-with-bullying/)
+- [7 Ways to Be a Positive Friend Even in the Darkest...](https://inspiration.allwomenstalk.com/ways-to-be-a-positive-friend-even-in-the-darkest-of-times/)
+- [7 Useful Tips for Learning the Gentle Art of Sayin...](https://inspiration.allwomenstalk.com/useful-tips-for-learning-the-gentle-art-of-saying-no/)
+- [bad conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist-2/)
 - [7 Ways to Raise a Confident Kid ...](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
 - [8 Ways to Build Your Childs Self Confidence ...](https://parenting.allwomenstalk.com/ways-to-build-your-childs-self-confidence/)
 
