@@ -3,7 +3,7 @@ title: "5 Things No One Tells You about High School ..."
 description: "Never Apologize for Who You Are; How You Look Doesn't Matter; Popularity Isn't What It's Made out to Be; It's Okay to Go Stag at Dances; Take Everything with a Grain of Salt; More ..."
 url: "https://teen.allwomenstalk.com/things-no-one-tells-you-about-high-school/"
 category: "teen"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 5 Things No One Tells You about High School ...
@@ -38,16 +38,16 @@ This is the most crucial piece of advice. People are going to spread rumors and 
 
 ## Related Posts
 
-- [what are the things that the school needs to impro...](https://lifestyle.allwomenstalk.com/little-things-you-can-do-to-improve-the-quality-of-your-school-day/)
-- [3 Reasons How College Will Teach You about Yoursel...](https://lifestyle.allwomenstalk.com/how-college-will-teach-you-about-yourself/)
 - [things to do before graduating college](https://lifestyle.allwomenstalk.com/things-to-do-before-you-graduate-college-2/)
-- [Important Things Every College Girl Should Make Ti...](https://lifestyle.allwomenstalk.com/things-that-every-college-girl-should-make-time-for/)
+- [what are the things that the school needs to impro...](https://lifestyle.allwomenstalk.com/little-things-you-can-do-to-improve-the-quality-of-your-school-day/)
+- [Teenagers Guide on How to Survive High School ...](https://teen.allwomenstalk.com/how-to-survive-high-school/)
+- [3 Reasons How College Will Teach You about Yoursel...](https://lifestyle.allwomenstalk.com/how-college-will-teach-you-about-yourself/)
 - [How to Choose  the Best College for You ...](https://teen.allwomenstalk.com/how-to-choose-the-best-college-for-you/)
 - [10 Things to Always Consider  when Youre Applying ...](https://lifestyle.allwomenstalk.com/things-to-consider-when-applying-for-college/)
-- [Teenagers Guide on How to Survive High School ...](https://teen.allwomenstalk.com/how-to-survive-high-school/)
-- [Awesome Ways to Start Prepping for Exams Now ...](https://teen.allwomenstalk.com/ways-to-start-prepping-for-exams-now/)
-- [Girls Guide to Choosing Your Degree ...](https://money.allwomenstalk.com/guide-to-choosing-your-degree/)
 - [The Benefits of Attending a Community College You ...](https://money.allwomenstalk.com/benefits-to-attending-community-college-for-two-years/)
+- [Girls Guide to Choosing Your Degree ...](https://money.allwomenstalk.com/guide-to-choosing-your-degree/)
+- [Awesome Ways to Start Prepping for Exams Now ...](https://teen.allwomenstalk.com/ways-to-start-prepping-for-exams-now/)
+- [Important Things Every College Girl Should Make Ti...](https://lifestyle.allwomenstalk.com/things-that-every-college-girl-should-make-time-for/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [8 Things You Need to Know about Your Teen ...](https://parenting.allwomenstalk.com/things-you-need-to-know-about-your-teen/)
 
