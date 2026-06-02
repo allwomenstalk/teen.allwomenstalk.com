@@ -3,7 +3,7 @@ title: "7 Things Only Your Best Friend Knows about You ..."
 description: "Your Guilty Pleasure Tv Shows; That You Force Them to like Your Instagram Posts; How Much Time You Spend Composing Texts; The People You Secretly Hate; Details of All Your Hook Ups; More ..."
 url: "https://teen.allwomenstalk.com/things-only-your-best-friend-knows-about-you/"
 category: "teen"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Things Only Your Best Friend Knows about You ...
@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out many things only your best fri
 
 ## Related Posts
 
-- [7 Standards You Should Never Lower for a Happy Lif...](https://love.allwomenstalk.com/standards-you-should-never-lower-for-a-happy-life/)
-- [things to learn as an adult](https://teen.allwomenstalk.com/surprising-things-you-learn-when-you-become-an-adult/)
 - [why do i compare myself to his ex](https://inspiration.allwomenstalk.com/situations-when-you-may-be-tempted-to-compare-yourself-to-others/)
-- [7 Everyday Things That Are Actually Contagious ...](https://lifestyle.allwomenstalk.com/everyday-things-that-are-actually-contagious/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/amazing-things-your-brain-does/)
 - [7 Bitter Life Truths You Need to Hear ...](https://inspiration.allwomenstalk.com/bitter-life-truths-you-need-to-hear/)
-- [9 Things Youll Learn about Life by the Time Youre ...](https://teen.allwomenstalk.com/things-youll-learn-by-the-time-youre-19/)
-- [7 Things Youll Learn about Yourself when You Live ...](https://lifestyle.allwomenstalk.com/things-youll-learn-about-yourself-when-you-live-by-yourself/)
+- [things to learn as an adult](https://teen.allwomenstalk.com/surprising-things-you-learn-when-you-become-an-adult/)
 - [7 Extremely Useful Things You Can Learn from Thera...](https://inspiration.allwomenstalk.com/extremely-useful-things-you-can-learn-from-therapists/)
+- [9 Things Youll Learn about Life by the Time Youre ...](https://teen.allwomenstalk.com/things-youll-learn-by-the-time-youre-19/)
+- [7 Standards You Should Never Lower for a Happy Lif...](https://love.allwomenstalk.com/standards-you-should-never-lower-for-a-happy-life/)
+- [7 Everyday Things That Are Actually Contagious ...](https://lifestyle.allwomenstalk.com/everyday-things-that-are-actually-contagious/)
 - [7 Things That Will Cheer You up when You Dont Feel...](https://inspiration.allwomenstalk.com/things-that-will-cheer-you-up-when-you-dont-feel-loved/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/amazing-things-your-brain-does/)
+- [7 Things Youll Learn about Yourself when You Live ...](https://lifestyle.allwomenstalk.com/things-youll-learn-about-yourself-when-you-live-by-yourself/)
 - [7 Relationship Tips for Your BFFS ...](https://lifestyle.allwomenstalk.com/7-relationship-tips-for-your-bffs/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 

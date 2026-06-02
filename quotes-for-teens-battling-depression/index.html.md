@@ -3,7 +3,7 @@ title: "7 Quotes for Teens Battling Depression ..."
 description: "J.K. Rowling; Henry Wadsworth Longfellow; Dodie Smith; John Keats; Shayamalan; More ..."
 url: "https://teen.allwomenstalk.com/quotes-for-teens-battling-depression/"
 category: "mindfulness"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Quotes for Teens Battling Depression ...
@@ -56,16 +56,16 @@ Depression is a terribly scary feeling of hopelessness and loss. However, it's n
 
 ## Related Posts
 
-- [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
-- [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
-- [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
-- [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
-- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
-- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
-- [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
-- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
-- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 - [deepak chopra quotes on self love](https://inspiration.allwomenstalk.com/deepak-chopra-quotes-to-make-you-feel-more-centered/)
+- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
+- [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
+- [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
+- [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
+- [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
+- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
+- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
+- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
+- [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
 - [10 Ways to Prevent Depression ...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
 - [10 Ways to Fight Depression ...](https://allwomenstalk.com/10-ways-to-fight-depression/)
 
