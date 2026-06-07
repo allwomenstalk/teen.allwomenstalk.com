@@ -3,7 +3,7 @@ title: "9 Healthy Habits to Start in High School ..."
 description: "Eating Breakfast; Exercising; Saving Money; Eating Healthy; Cleaning Your Room; More ..."
 url: "https://teen.allwomenstalk.com/healthy-habits-to-start-in-high-school/"
 category: "teen"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 9 Healthy Habits to Start in High School ...
@@ -50,15 +50,15 @@ Your teenage years are a crucial part of your life, and the way you act now heav
 
 ## Related Posts
 
-- [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
-- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
-- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
-- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
-- [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
-- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
-- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
-- [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
 - [how to stand out in your college application](https://teen.allwomenstalk.com/ways-to-make-your-college-application-stand-out/)
+- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
+- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
+- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
+- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
+- [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
+- [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
+- [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
+- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
 - [9 things in the world](https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/)
 - [10 Healthy Habits to Start in College ...](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [10 General Tips for High School Girls ...](https://allwomenstalk.com/10-general-tips-for-high-school-girls/)

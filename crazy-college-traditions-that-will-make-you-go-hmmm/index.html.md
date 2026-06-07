@@ -3,7 +3,7 @@ title: "7 Crazy College Traditions That Will Make You Go Hmmm ..."
 description: "Ohio State University; Stanford University; Macalester College; Columbia University; Carleton College; More ..."
 url: "https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/"
 category: "teen"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Crazy College Traditions That Will Make You Go Hmmm ...
@@ -56,16 +56,16 @@ These are just some of many crazy college traditions that happen across the coun
 
 ## Related Posts
 
-- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
-- [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
-- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
-- [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
-- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
-- [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
-- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
 - [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
-- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
 - [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
+- [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
+- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
+- [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
+- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
+- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
+- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
+- [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
+- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
 - [7 Funny Superstitions ...](https://allwomenstalk.com/7-funny-superstitions/)
 - [7 Hilarious Hoaxes That Will Keep You Guessing ...](https://7fun.net/hilarious-hoaxes-that-will-keep-you-guessing/)
 

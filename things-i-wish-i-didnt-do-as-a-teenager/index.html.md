@@ -1,12 +1,12 @@
 ---
-title: "7 Things I Wish I Didnt do as a Teenager ..."
+title: "7 Things I Wish I Didn't do as a Teenager ..."
 description: "If You Don’t Know What You Want to Be; If You’re Worried about Sex; If You Don’t like the Way You Look; If People Pick on You; If You Feel Different; More ..."
 url: "https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/"
 category: "teen"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Things I Wish I Didnt do as a Teenager ...
+# 7 Things I Wish I Didn't do as a Teenager ...
 
 I was an awkward teenager. Nothing really fit together properly; I was shy and not at all confident. I suppose most people are. I wouldn't relive those years for anything, but I wish I'd known what I know now - about myself, about life in general. I'm sure I'll say the same thing about right now in ten years’ time, but such is the unfairness of life. There are a few things in particular I wish I’d known and I wanted to share them here because, if any of you are struggling with any of these things now, I promise you that they won’t seem so important in a few years’ time. Really.
 
@@ -42,16 +42,16 @@ I hope this helps in some small way. If you’re ever feeling a bit hopeless, th
 
 ## Related Posts
 
-- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
-- [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
-- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
 - [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
-- [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
-- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
-- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
-- [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
-- [mens accgft marshalls](https://fashion.allwomenstalk.com/worst-things-to-wear-in-the-workplace/)
 - [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
+- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
+- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
+- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
+- [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
+- [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
+- [men's acc/gft marshalls](https://fashion.allwomenstalk.com/worst-things-to-wear-in-the-workplace/)
+- [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
+- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)
 - [7 Things I Miss about College ...](https://allwomenstalk.com/7-things-i-miss-about-college/)
 

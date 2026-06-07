@@ -3,7 +3,7 @@ title: "7 Cold Hard Truths about High School Relationships ..."
 description: "You Have Very Little Privacy; Extending the Relationship into College Usually Doesn't Work; You Don't Know WTF You're Doing; You Compare Yourself to Others, a Lot; You're Still Changing, Which Makes It Really Easy to Fall out of Love; More ..."
 url: "https://teen.allwomenstalk.com/cold-hard-truths-about-high-school-relationships/"
 category: "teen"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Cold Hard Truths about High School Relationships ...
@@ -54,18 +54,18 @@ Are you in a high school relationship?
 
 ## Related Posts
 
-- [relationship question quiz](https://love.allwomenstalk.com/relationship-trivia-questions-to-quiz-your-partner-with/)
-- [kissing rules](https://love.allwomenstalk.com/kissing-rules-you-should-always-abide-by/)
-- [laughter in a relationship](https://love.allwomenstalk.com/why-the-couple-who-laughs-together-stays-together/)
-- [boyfriend girlfriend goals](https://love.allwomenstalk.com/relationship-goals-for-girls-in-college/)
-- [what questions to ask a man you want to marry](https://love.allwomenstalk.com/these-questions-will-tell-you-if-hes-the-man-you-should-marry/)
-- [things healthy couples do](https://love.allwomenstalk.com/what-healthy-couples-do-each-and-every-morning/)
 - [bad girlfriend quotes](https://love.allwomenstalk.com/these-things-dont-make-you-a-bad-girlfriend/)
-- [nightskiesnetwork](https://love.allwomenstalk.com/websites-that-will-help-keep-your-ldr-alive-and-kicking/)
+- [what questions to ask a man you want to marry](https://love.allwomenstalk.com/these-questions-will-tell-you-if-hes-the-man-you-should-marry/)
 - [odds of falling in love](https://love.allwomenstalk.com/things-thatll-boost-your-chances-of-falling-in-love/)
+- [boyfriend girlfriend goals](https://love.allwomenstalk.com/relationship-goals-for-girls-in-college/)
+- [kissing rules](https://love.allwomenstalk.com/kissing-rules-you-should-always-abide-by/)
+- [things healthy couples do](https://love.allwomenstalk.com/what-healthy-couples-do-each-and-every-morning/)
+- [laughter in a relationship](https://love.allwomenstalk.com/why-the-couple-who-laughs-together-stays-together/)
+- [nightskiesnetwork](https://love.allwomenstalk.com/websites-that-will-help-keep-your-ldr-alive-and-kicking/)
 - [how to watch netflix with someone long distance](https://love.allwomenstalk.com/watch-netflix-with-your-long-distance-lover/)
+- [relationship question quiz](https://love.allwomenstalk.com/relationship-trivia-questions-to-quiz-your-partner-with/)
 - [7 Outdated Relationship Rules ...](https://love.allwomenstalk.com/7-outdated-relationship-rules/)
-- [7 Dos  Donts in a Relationship ...](https://love.allwomenstalk.com/dos-donts-in-a-relationship/)
+- [7 Dos & Don'ts in a Relationship ...](https://love.allwomenstalk.com/dos-donts-in-a-relationship/)
 
 ## Site Information
 

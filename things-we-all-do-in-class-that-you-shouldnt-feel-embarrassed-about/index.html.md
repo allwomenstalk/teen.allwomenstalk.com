@@ -1,12 +1,12 @@
 ---
-title: "7 Things We All do in Class That You Shouldnt Feel Embarrassed about ..."
+title: "7 Things We All do in Class That You Shouldn't Feel Embarrassed about ..."
 description: "Leaving for Lady Troubles; Asking “too Many” Questions; Feeling Confused; Failing a Test; Getting Put on the Spot; More ..."
 url: "https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/"
 category: "teen"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Things We All do in Class That You Shouldnt Feel Embarrassed about ...
+# 7 Things We All do in Class That You Shouldn't Feel Embarrassed about ...
 
 Many of the things you feel mortified about after school are actually things we all do in class, that you don’t need to feel embarrassed about. Sometimes, you may feel like all eyes are on you, and wish that you could just disappear! But these things we all do in class are nothing to be ashamed of, and can be easily dealt with.
 
@@ -42,16 +42,16 @@ It’s easy to get embarrassed in class, when everyone seems to be starving for 
 
 ## Related Posts
 
-- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
+- [don't let what you're good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
 - [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
-- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
-- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
-- [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
+- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
 - [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
-- [dont let what youre good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
-- [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
+- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
 - [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
+- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
 - [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
+- [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
+- [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
 - [7 Tips Every Teacher Should Have ...](https://allwomenstalk.com/7-tips-every-teacher-should-have/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 

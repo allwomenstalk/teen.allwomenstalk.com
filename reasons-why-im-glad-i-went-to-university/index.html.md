@@ -1,12 +1,12 @@
 ---
-title: "7 Reasons Why Im Glad I Went to University ..."
+title: "7 Reasons Why I'm Glad I Went to University ..."
 description: "Job Prospects; The Benefits of Learning; 'Transferable Skills'; Discipline; Standing on Your Own Two Feet; More ..."
 url: "https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/"
 category: "teen"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Reasons Why Im Glad I Went to University ...
+# 7 Reasons Why I'm Glad I Went to University ...
 
 I've come across a lot of people who think that university is a waste of time, and part of me can understand this, but I wanted to talk a little bit about why I'm glad I went to university. It's been responsible in a massive part for who and where I am today. That being said, the fees in the UK have tripled since I graduated so I can see why it just isn't always a viable option anymore. However, if you are thinking about it, these are the reasons why I'm glad I went to university.
 
@@ -42,16 +42,16 @@ So, that's me! I completely understand that university isn't right for everyone,
 
 ## Related Posts
 
-- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
-- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
 - [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
-- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
-- [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
-- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
-- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
-- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
+- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
+- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
 - [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
+- [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
+- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
+- [what is self expression?](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
 - [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
+- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
+- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
 - [The Benefits of Completing a University Degree ...](https://allwomenstalk.com/benefits-of-completing-university-degree/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 

@@ -3,7 +3,7 @@ title: "Guaranteed Ways to End a Toxic Friendship as Painlessly as Possible ..."
 description: "Do It in Person; Explain; Avoid Insults; Be Aware of Your Tone; Be Honest; More ..."
 url: "https://teen.allwomenstalk.com/tips-for-ending-a-friendship-smoothly/"
 category: "teen"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Guaranteed Ways to End a Toxic Friendship as Painlessly as Possible ...
@@ -56,16 +56,16 @@ While it isn’t exactly a breakup, the end of a friendship can still be extreme
 
 ## Related Posts
 
-- [why am i so mean to my boyfriend](https://love.allwomenstalk.com/helpful-tips-on-how-to-deal-with-a-mean-boyfriend/)
+- [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
+- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
+- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
+- [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
 - [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
 - [how to deal with self absorbed people](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-self-absorbed-person/)
-- [quotes about friends hurting you](https://inspiration.allwomenstalk.com/reasons-to-be-kind-to-those-who-have-hurt-you/)
-- [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
-- [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
-- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
 - [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
+- [why am i so mean to my boyfriend](https://love.allwomenstalk.com/helpful-tips-on-how-to-deal-with-a-mean-boyfriend/)
 - [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
-- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
+- [quotes about friends hurting you](https://inspiration.allwomenstalk.com/reasons-to-be-kind-to-those-who-have-hurt-you/)
 - [7 Ways to Leave a Bad Relationship ...](https://allwomenstalk.com/7-ways-to-leave-a-bad-relationship/)
 - [7 Ways to Ditch a Frenemy ...](https://allwomenstalk.com/ways-to-ditch-a-frenemy/)
 

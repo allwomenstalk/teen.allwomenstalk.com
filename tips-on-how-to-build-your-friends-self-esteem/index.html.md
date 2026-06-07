@@ -1,12 +1,12 @@
 ---
-title: "7 Tips on How to Build Your Friends Self-Esteem ..."
+title: "7 Tips on How to Build Your Friend's Self-Esteem ..."
 description: "Support Them in Their Accomplishments; Encourage a Healthy Lifestyle; Be Completely Honest; Avoid Putting Them down; Give Them the Occasional Pep-talk; More ..."
 url: "https://teen.allwomenstalk.com/tips-on-how-to-build-your-friends-self-esteem/"
 category: "teen"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Tips on How to Build Your Friends Self\-Esteem ...
+# 7 Tips on How to Build Your Friend's Self\-Esteem ...
 
 We all have friends that think very low of themselves but instead of enabling their self-deprecating behavior, it is much more helpful to learn how to build your friend’s self-esteem. You might be or might have already suffered from self-esteem issues in the past and know how it feels to believe that you are just not good enough. So help out your friend get out of his or her funk and open his or her eyes to the truth by using some of these tips on how to build your friend’s self-esteem.
 
@@ -42,18 +42,18 @@ While self-esteem is a very sensitive topic among the younger generation, it is 
 
 ## Related Posts
 
-- [7 Ways to End an Argument ...](https://love.allwomenstalk.com/ways-to-end-an-argument/)
-- [7 Tips for Talking to Staff about a Problem when A...](https://lifestyle.allwomenstalk.com/tips-for-talking-to-staff-about-a-problem-when-all-you-want-to-do-is-yell/)
-- [bad conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist-2/)
-- [7 Ways to Be a Positive Friend Even in the Darkest...](https://inspiration.allwomenstalk.com/ways-to-be-a-positive-friend-even-in-the-darkest-of-times/)
-- [7 Helpful Ways to Cope with Bullying ...](https://teen.allwomenstalk.com/helpful-ways-to-cope-with-bullying/)
-- [7 Tips for Dealing with Unsolicited Parenting Advi...](https://parenting.allwomenstalk.com/tips-for-dealing-with-unsolicited-parenting-advice/)
-- [7 Tips on How to Handle Awkward Situations ...](https://inspiration.allwomenstalk.com/tips-on-how-to-handle-awkward-situations/)
-- [11 Effective Ways to Talk to Your Friend about Her...](https://health.allwomenstalk.com/effective-ways-to-talk-to-your-friend-about-her-eating-disorder/)
 - [7 Ways to Deal with Overprotective Parents ...](https://teen.allwomenstalk.com/ways-to-deal-with-overprotective-parents-2/)
+- [7 Tips for Talking to Staff about a Problem when A...](https://lifestyle.allwomenstalk.com/tips-for-talking-to-staff-about-a-problem-when-all-you-want-to-do-is-yell/)
 - [7 Useful Tips for Learning the Gentle Art of Sayin...](https://inspiration.allwomenstalk.com/useful-tips-for-learning-the-gentle-art-of-saying-no/)
+- [7 Helpful Ways to Cope with Bullying ...](https://teen.allwomenstalk.com/helpful-ways-to-cope-with-bullying/)
+- [7 Ways to Be a Positive Friend Even in the Darkest...](https://inspiration.allwomenstalk.com/ways-to-be-a-positive-friend-even-in-the-darkest-of-times/)
+- [7 Tips on How to Handle Awkward Situations ...](https://inspiration.allwomenstalk.com/tips-on-how-to-handle-awkward-situations/)
+- [7 Ways to End an Argument ...](https://love.allwomenstalk.com/ways-to-end-an-argument/)
+- [bad conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist-2/)
+- [7 Tips for Dealing with Unsolicited Parenting Advi...](https://parenting.allwomenstalk.com/tips-for-dealing-with-unsolicited-parenting-advice/)
+- [11 Effective Ways to Talk to Your Friend about Her...](https://health.allwomenstalk.com/effective-ways-to-talk-to-your-friend-about-her-eating-disorder/)
 - [7 Ways to Raise a Confident Kid ...](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
-- [8 Ways to Build Your Childs Self Confidence ...](https://parenting.allwomenstalk.com/ways-to-build-your-childs-self-confidence/)
+- [8 Ways to Build Your Child's Self Confidence ...](https://parenting.allwomenstalk.com/ways-to-build-your-childs-self-confidence/)
 
 ## Site Information
 
