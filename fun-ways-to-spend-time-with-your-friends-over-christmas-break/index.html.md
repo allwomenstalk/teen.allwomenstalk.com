@@ -3,7 +3,7 @@ title: "7 Fun Ways to Spend Time with Your Friends over Christmas Break ..."
 description: "Ice-Skating; Holiday Movie Marathon; Take a Picture with Santa; Host a New Year’s Eve Party; Have a Snowman Contest; More ..."
 url: "https://teen.allwomenstalk.com/fun-ways-to-spend-time-with-your-friends-over-christmas-break/"
 category: "teen"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Fun Ways to Spend Time with Your Friends over Christmas Break ...
@@ -43,15 +43,15 @@ What are your plans with your friends over Christmas break? Will you try any of 
 ## Related Posts
 
 - [things to do with mushrooms](https://food.allwomenstalk.com/new-and-exciting-things-to-do-with-mushrooms/)
-- [christmas fun game](https://lifestyle.allwomenstalk.com/fun-christmas-games-to-spice-up-your-party/)
-- [aunt niece date ideas](https://parenting.allwomenstalk.com/fun-activities-for-aunty-and-toddler/)
-- [best group game](https://lifestyle.allwomenstalk.com/house-party-games-for-a-wild-night-with-friends/)
 - [house parties ideas](https://movies.allwomenstalk.com/unforgettable-house-party-ideas-for-oscar-night/)
 - [adult game cards](https://lifestyle.allwomenstalk.com/adult-only-card-and-board-games/)
 - [quick sketch](https://diy.allwomenstalk.com/drawing-websites-to-visit-when-youre-bored/)
-- [colmar new year eve](https://travel.allwomenstalk.com/new-years-eve-traditions-from-around-the-world/)
-- [fun teenage games](https://teen.allwomenstalk.com/fun-new-years-party-games-for-teens/)
 - [how to celebrate new years without alcohol](https://lifestyle.allwomenstalk.com/ways-to-celebrate-new-years-eve-without-drinking/)
+- [aunt niece date ideas](https://parenting.allwomenstalk.com/fun-activities-for-aunty-and-toddler/)
+- [best group game](https://lifestyle.allwomenstalk.com/house-party-games-for-a-wild-night-with-friends/)
+- [christmas fun game](https://lifestyle.allwomenstalk.com/fun-christmas-games-to-spice-up-your-party/)
+- [fun teenage games](https://teen.allwomenstalk.com/fun-new-years-party-games-for-teens/)
+- [colmar new year eve](https://travel.allwomenstalk.com/new-years-eve-traditions-from-around-the-world/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 

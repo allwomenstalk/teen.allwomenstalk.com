@@ -3,7 +3,7 @@ title: "7 Things That All College Students do to Avoid ..."
 description: "Drink; Smoke; Haze; Don’t do Drugs; Pull All-nighters; More ..."
 url: "https://teen.allwomenstalk.com/things-that-all-college-students-do-to-avoid/"
 category: "teen"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Things That All College Students do to Avoid ...
@@ -44,14 +44,14 @@ These are some of the things that I think many college students do. But everybod
 
 - [College Essentials You Absolutely Need to Pack Fir...](https://teen.allwomenstalk.com/college-essentials-you-shouldnt-forget-to-pack/)
 - [7 Very Helpful Tips on How to Accomplish a School ...](https://teen.allwomenstalk.com/very-helpful-tips-on-how-to-accomplish-a-school-goal/)
-- [9 Things to do before You Graduate College ...](https://teen.allwomenstalk.com/things-to-do-before-you-graduate-college/)
-- [9 Tips for Transfer Students ...](https://teen.allwomenstalk.com/tips-for-transfer-students/)
-- [Things You Need to do before Heading off to Colleg...](https://teen.allwomenstalk.com/things-to-do-before-heading-off-to-college/)
-- [7 Ways to Get Your College Work Done ...](https://teen.allwomenstalk.com/ways-to-get-your-college-work-done/)
 - [7 Tips for Choosing Your College Major ...](https://teen.allwomenstalk.com/tips-for-choosing-your-college-major/)
-- [7 Awesome Reasons to Take Notes on Your Tablet in ...](https://teen.allwomenstalk.com/awesome-reasons-to-take-notes-on-your-tablet-in-class/)
+- [9 Tips for Transfer Students ...](https://teen.allwomenstalk.com/tips-for-transfer-students/)
+- [7 Ways to Get Your College Work Done ...](https://teen.allwomenstalk.com/ways-to-get-your-college-work-done/)
 - [7 Things to Consider when Picking a University Deg...](https://teen.allwomenstalk.com/things-to-consider-when-picking-a-university-degree/)
+- [7 Awesome Reasons to Take Notes on Your Tablet in ...](https://teen.allwomenstalk.com/awesome-reasons-to-take-notes-on-your-tablet-in-class/)
 - [7 Famous Speeches Delivered on College Campuses .....](https://inspiration.allwomenstalk.com/famous-speeches-delivered-on-college-campuses/)
+- [Things You Need to do before Heading off to Colleg...](https://teen.allwomenstalk.com/things-to-do-before-heading-off-to-college/)
+- [9 Things to do before You Graduate College ...](https://teen.allwomenstalk.com/things-to-do-before-you-graduate-college/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 - [10 Ways to save Money for College ...](https://allwomenstalk.com/10-ways-to-save-money-for-college/)
 

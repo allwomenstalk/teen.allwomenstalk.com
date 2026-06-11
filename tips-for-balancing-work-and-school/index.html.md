@@ -3,7 +3,7 @@ title: "7 Tips for Balancing Work and School ..."
 description: "Remember: School Comes First; Talk to Your Manager; Talk to Your Teachers; Take a Free Period; Work Somewhere You Can Multitask; More ..."
 url: "https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/"
 category: "teen"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Tips for Balancing Work and School ...
@@ -42,16 +42,16 @@ Getting hired anywhere during high school is a great privilege, and you should t
 
 ## Related Posts
 
-- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
-- [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
-- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
-- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
-- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
-- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
-- [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
-- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
 - [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
 - [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
+- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
+- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
+- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
+- [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
+- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
+- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
+- [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
+- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
 - [7 Tips Needed for Those Going Back to School ...](https://allwomenstalk.com/7-tips-needed-for-those-going-back-to-school/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 
