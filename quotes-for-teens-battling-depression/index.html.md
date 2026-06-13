@@ -3,7 +3,7 @@ title: "7 Quotes for Teens Battling Depression ..."
 description: "J.K. Rowling; Henry Wadsworth Longfellow; Dodie Smith; John Keats; Shayamalan; More ..."
 url: "https://teen.allwomenstalk.com/quotes-for-teens-battling-depression/"
 category: "mindfulness"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Quotes for Teens Battling Depression ...
@@ -56,15 +56,15 @@ Depression is a terribly scary feeling of hopelessness and loss. However, it's n
 
 ## Related Posts
 
+- [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
 - [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
-- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
+- [deepak chopra quotes on self love](https://inspiration.allwomenstalk.com/deepak-chopra-quotes-to-make-you-feel-more-centered/)
 - [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
 - [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
-- [deepak chopra quotes on self love](https://inspiration.allwomenstalk.com/deepak-chopra-quotes-to-make-you-feel-more-centered/)
 - [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
 - [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
 - [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
-- [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
+- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
 - [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
 - [10 Ways to Prevent Depression ...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
 - [10 Ways to Fight Depression ...](https://allwomenstalk.com/10-ways-to-fight-depression/)

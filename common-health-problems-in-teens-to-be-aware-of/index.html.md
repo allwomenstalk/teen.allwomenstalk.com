@@ -3,7 +3,7 @@ title: "7 Common Health Problems in Teens to Be Aware of ..."
 description: "Eating Disorders; Early Pregnancy; Depression; STDs; Drinking; More ..."
 url: "https://teen.allwomenstalk.com/common-health-problems-in-teens-to-be-aware-of/"
 category: "teen"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Common Health Problems in Teens to Be Aware of ...
@@ -42,16 +42,16 @@ If you’re a teen, or a parent of a teen, be sure you’re always aware that th
 
 ## Related Posts
 
-- [chronic silent migraine symptoms](https://health.allwomenstalk.com/things-to-know-about-silent-migraines/)
-- [7 Scary Women's Health Issues You Should Be Aware ...](https://health.allwomenstalk.com/scary-womens-health-issues-you-must-be-aware-of/)
+- [7 Things to Look for when Choosing Supplements ...](https://health.allwomenstalk.com/things-to-look-for-when-choosing-supplements/)
 - [7 Facts about Fibromyalgia That You Should Know .....](https://health.allwomenstalk.com/facts-about-fibromyalgia-that-you-should-know/)
-- [9 Worst Health Schemes Not to Fall for This Year ....](https://health.allwomenstalk.com/worst-health-schemes-not-to-fall-for-this-year/)
 - [7 Ways Cancer Affects More than the Patient ...](https://health.allwomenstalk.com/ways-cancer-affects-more-than-the-patient/)
+- [chronic silent migraine symptoms](https://health.allwomenstalk.com/things-to-know-about-silent-migraines/)
+- [7 Common Overuse Injuries That Athletes Get ...](https://fitness.allwomenstalk.com/common-overuse-injuries-that-athletes-get/)
+- [9 Worst Health Schemes Not to Fall for This Year ....](https://health.allwomenstalk.com/worst-health-schemes-not-to-fall-for-this-year/)
 - [7 Misconceptions about Self-Harm That You Should K...](https://health.allwomenstalk.com/misconceptions-about-self-harm-that-you-should-know-of/)
 - [7 Bodily Signs of Malnutrition to Be Aware of ...](https://health.allwomenstalk.com/bodily-signs-of-malnutrition-to-be-aware-of/)
-- [7 Common Overuse Injuries That Athletes Get ...](https://fitness.allwomenstalk.com/common-overuse-injuries-that-athletes-get/)
 - [9 Common Health Issues Many Women Face Today ...](https://vityle.com/common-health-issues-many-women-face-today/)
-- [7 Things to Look for when Choosing Supplements ...](https://health.allwomenstalk.com/things-to-look-for-when-choosing-supplements/)
+- [7 Scary Women's Health Issues You Should Be Aware ...](https://health.allwomenstalk.com/scary-womens-health-issues-you-must-be-aware-of/)
 - [7 Tips to Encourage Healthy Living in Your Kids .....](https://health.allwomenstalk.com/7-tips-to-encourage-healthy-living-in-your-kids/)
 - [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
 

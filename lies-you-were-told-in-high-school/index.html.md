@@ -3,7 +3,7 @@ title: "7 Lies You Were Told in High School ..."
 description: "These Will Be the Best Four Years of Your Life; Writing in Cursive is a Necessary Skill; Phones Will Be Confiscated; You Will Use This Knowledge One Day; Every Teachers is Here to Help You; More ..."
 url: "https://teen.allwomenstalk.com/lies-you-were-told-in-high-school/"
 category: "teen"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Lies You Were Told in High School ...
@@ -42,16 +42,16 @@ Some things that you are told repeatedly in high school are just not true, and I
 
 ## Related Posts
 
-- [one thing that money can't buy](https://money.allwomenstalk.com/things-money-cant-buy/)
-- [gente en disney](https://travel.allwomenstalk.com/types-of-people-you-meet-in-disneyland/)
-- [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
 - [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
-- [what is the lesson of the giving tree](https://books.allwomenstalk.com/lessons-from-shel-silversteins-the-giving-tree/)
-- [monti say yes to the dress](https://wedding.allwomenstalk.com/helpful-things-you-can-learn-from-watching-say-yes-to-the-dress/)
-- [hansel and gretal moral](https://inspiration.allwomenstalk.com/life-lessons-from-hansel-and-gretel/)
-- [growing up with you was fun](https://lifestyle.allwomenstalk.com/awesome-things-about-growing-up/)
 - [3 interesting facts about rudyard kipling](https://inspiration.allwomenstalk.com/life-lessons-from-rudyard-kipling/)
+- [monti say yes to the dress](https://wedding.allwomenstalk.com/helpful-things-you-can-learn-from-watching-say-yes-to-the-dress/)
+- [gente en disney](https://travel.allwomenstalk.com/types-of-people-you-meet-in-disneyland/)
 - [no impact project](https://books.allwomenstalk.com/lessons-you-can-learn-from-the-no-impact-man/)
+- [what is the lesson of the giving tree](https://books.allwomenstalk.com/lessons-from-shel-silversteins-the-giving-tree/)
+- [one thing that money can't buy](https://money.allwomenstalk.com/things-money-cant-buy/)
+- [growing up with you was fun](https://lifestyle.allwomenstalk.com/awesome-things-about-growing-up/)
+- [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
+- [hansel and gretal moral](https://inspiration.allwomenstalk.com/life-lessons-from-hansel-and-gretel/)
 - [10 Diet Myths ...](https://allwomenstalk.com/10-diet-myths/)
 - [9 Lies People Tell and Why ...](https://allwomenstalk.com/9-lies-people-tell-and-why/)
 
