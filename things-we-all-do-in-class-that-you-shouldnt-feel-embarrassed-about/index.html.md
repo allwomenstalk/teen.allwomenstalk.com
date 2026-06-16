@@ -3,7 +3,7 @@ title: "7 Things We All do in Class That You Shouldn't Feel Embarrassed about ..
 description: "Leaving for Lady Troubles; Asking “too Many” Questions; Feeling Confused; Failing a Test; Getting Put on the Spot; More ..."
 url: "https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/"
 category: "teen"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Things We All do in Class That You Shouldn't Feel Embarrassed about ...
@@ -42,16 +42,16 @@ It’s easy to get embarrassed in class, when everyone seems to be starving for 
 
 ## Related Posts
 
-- [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
-- [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
 - [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
-- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
-- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
 - [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
-- [don't let what you're good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
-- [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
-- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
+- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
 - [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
+- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
+- [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
+- [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
+- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
+- [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
+- [don't let what you're good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
 - [7 Tips Every Teacher Should Have ...](https://allwomenstalk.com/7-tips-every-teacher-should-have/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 

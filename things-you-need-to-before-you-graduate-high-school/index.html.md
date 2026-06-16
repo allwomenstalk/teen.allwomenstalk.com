@@ -3,7 +3,7 @@ title: "7 Things You Need to do before You Graduate High School ..."
 description: "Start a Band; Show Your School Spirit; Join a Club or Sport; Get Your License; Be Weird with Your Friends; More ..."
 url: "https://teen.allwomenstalk.com/things-you-need-to-before-you-graduate-high-school/"
 category: "teen"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Things You Need to do before You Graduate High School ...
@@ -42,16 +42,16 @@ There you have it! These are just a few of the many things you should do before 
 
 ## Related Posts
 
-- [which gpa is more important](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-your-gpa/)
-- [7 types of friends in a group](https://teen.allwomenstalk.com/types-of-friends-to-make-in-high-school/)
-- [7 effective study habits](https://teen.allwomenstalk.com/tips-on-how-to-create-good-study-habits-that-will-help-you-pass-all-the-exams/)
+- [advantages of taking ap classes in high school](https://lifestyle.allwomenstalk.com/pros-and-cons-of-taking-an-a-p-course-in-high-school/)
 - [will i get a boyfriend in college](https://love.allwomenstalk.com/ways-for-college-students-to-find-a-boyfriend-on-campus/)
-- [adopting a healthier lifestyle](https://teen.allwomenstalk.com/important-reasons-to-adopt-a-healthy-lifestyle-in-high-school/)
+- [which gpa is more important](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-your-gpa/)
+- [7 effective study habits](https://teen.allwomenstalk.com/tips-on-how-to-create-good-study-habits-that-will-help-you-pass-all-the-exams/)
 - [good things about high school](https://teen.allwomenstalk.com/reasons-to-try-your-best-in-high-school/)
+- [clubs to join in high school](https://teen.allwomenstalk.com/clubs-to-join-at-your-high-school/)
+- [7 types of friends in a group](https://teen.allwomenstalk.com/types-of-friends-to-make-in-high-school/)
+- [adopting a healthier lifestyle](https://teen.allwomenstalk.com/important-reasons-to-adopt-a-healthy-lifestyle-in-high-school/)
 - [commuter school example](https://lifestyle.allwomenstalk.com/tips-to-follow-when-going-to-a-commuter-college/)
 - [movies about college](https://movies.allwomenstalk.com/ways-the-movies-portray-college-are-wrong/)
-- [advantages of taking ap classes in high school](https://lifestyle.allwomenstalk.com/pros-and-cons-of-taking-an-a-p-course-in-high-school/)
-- [clubs to join in high school](https://teen.allwomenstalk.com/clubs-to-join-at-your-high-school/)
 - [7 Things to do after Your High School Graduation ....](https://allwomenstalk.com/7-things-to-do-after-graduation/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 

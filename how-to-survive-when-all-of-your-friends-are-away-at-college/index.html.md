@@ -3,7 +3,7 @@ title: "Survival Tips for Those Whose Friends Are Away at College ..."
 description: "Make Sure Your Friends Know They’re Important to You; Focus on Your Own Likes and Dislikes; Make the Most of Your Current Life; Utilize Social Media and Technology; Accept the Fact That Things Will Change; More ..."
 url: "https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/"
 category: "teen"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Survival Tips for Those Whose Friends Are Away at College ...
@@ -43,15 +43,15 @@ How have you dealt with your friends leaving for college? Let me know in the com
 ## Related Posts
 
 - [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
+- [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
+- [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
 - [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
+- [why are college students broke](https://money.allwomenstalk.com/every-broke-college-student-needs-to-hear-this-news/)
 - [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
 - [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
-- [why are college students broke](https://money.allwomenstalk.com/every-broke-college-student-needs-to-hear-this-news/)
-- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
-- [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
-- [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
 - [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
 - [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
+- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
 - [9 Useful Tips for the College Student ...](https://allwomenstalk.com/9-useful-tips-for-the-college-student/)
 - [7 Tips to Survive Your First Summer as a College G...](https://lifestyle.allwomenstalk.com/tips-to-survive-your-first-summer-as-a-college-graduate/)
 

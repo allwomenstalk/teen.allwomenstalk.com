@@ -3,7 +3,7 @@ title: "Everything I Wish I Knew about High School Social Life My Freshman Year 
 description: "You Won’t Eat Lunch in a Bathroom Stall; Parties Are a Thing; Being Smart Isn’t Lame; Being Pretty Isn’t Everything; People Aren’t Always What They Seem; More ..."
 url: "https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/"
 category: "teen"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Everything I Wish I Knew about High School Social Life My Freshman Year ...
@@ -44,15 +44,15 @@ Overall, high school is what you make of it! But high school social life definit
 
 ## Related Posts
 
-- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
-- [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
-- [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
 - [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
+- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
+- [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
 - [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
-- [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
-- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
+- [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
+- [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
 - [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
+- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [8 Things I've Learned from Gossip Girl ...](https://movies.allwomenstalk.com/things-ive-learned-from-gossip-girl/)

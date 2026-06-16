@@ -3,7 +3,7 @@ title: "7 Empowering Books Every Young Woman Should Read as a Teenager"
 description: "Sisterhood of the Traveling Pants Series by Ann Brashares; The Princess Diaries Series by Meg Cabot; The Daughters Series by Joanna Philbin; The Carrie Diaries by Candace Bushnell; Magic in Manhattan by Sarah Mlynowski; More ..."
 url: "https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/"
 category: "teen"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Empowering Books Every Young Woman Should Read as a Teenager
@@ -56,16 +56,16 @@ What were some of your favorite books to get lost in as a teenager? What stories
 
 ## Related Posts
 
+- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
+- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
 - [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
 - [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
-- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
 - [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
-- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
-- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
-- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
-- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
 - [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
 - [anthony trollope novel](https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/)
+- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
+- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
+- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [8 Things Teenager Girls Enjoy Doing ...](https://parenting.allwomenstalk.com/8-things-teenager-girls-enjoy-doing/)
 

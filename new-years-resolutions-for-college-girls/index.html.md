@@ -3,7 +3,7 @@ title: "17 New Year's Resolutions for College Girls to Make ..."
 description: "Don’t Procrastinate; Make Your Own Food; Use a Notebook Instead of Your Laptop to Take Notes; Stop Skipping Class; Trade Numbers with Other Students; More ..."
 url: "https://teen.allwomenstalk.com/new-years-resolutions-for-college-girls/"
 category: "teen"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 17 New Year's Resolutions for College Girls to Make ...
@@ -116,16 +116,16 @@ It might be hard to do these things at first, but they'll make your college life
 
 ## Related Posts
 
+- [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
+- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
+- [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
+- [natural college girls](https://funny.allwomenstalk.com/lies-all-college-girls-tell-their-parents/)
+- [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
+- [usopp bandages](https://money.allwomenstalk.com/things-a-woman-should-always-have-at-work/)
 - [what every woman should know](https://lifestyle.allwomenstalk.com/things-every-woman-should-know-in-case-of-an-emergency/)
 - [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
 - [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
 - [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
-- [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
-- [natural college girls](https://funny.allwomenstalk.com/lies-all-college-girls-tell-their-parents/)
-- [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
-- [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
-- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
-- [usopp bandages](https://money.allwomenstalk.com/things-a-woman-should-always-have-at-work/)
 - [10 Healthy Habits to Start in College ...](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [10 General Tips for High School Girls ...](https://allwomenstalk.com/10-general-tips-for-high-school-girls/)
 
