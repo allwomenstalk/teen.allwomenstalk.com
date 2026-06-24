@@ -3,7 +3,7 @@ title: "17 Fun 🤗 Challenges to do with Friends when You're All Bored ..."
 description: "Oreo Challenge; Guess the Song Challenge; Try Not to Laugh Challenge; Cracker Challenge; Chubby Bunny Challenge; More ..."
 url: "https://teen.allwomenstalk.com/challenges-to-do-with-friends/"
 category: "teen"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 17 Fun 🤗 Challenges to do with Friends when You're All Bored ...
@@ -94,16 +94,16 @@ Put a bunch of different accents on pieces of paper in a hat, and take turns pic
 
 ## Related Posts
 
+- [fun things to do with someone you like](https://love.allwomenstalk.com/fun-group-date-ideas/)
+- [best games for young adults](https://lifestyle.allwomenstalk.com/kids-games-that-are-fun-to-play-as-an-adult/)
+- [movie night snack table](https://movies.allwomenstalk.com/how-to-host-a-movie-night/)
 - [fun office desk games](https://lifestyle.allwomenstalk.com/games-to-have-on-your-desk-at-work/)
 - [inventive ideas for budget-friendly](https://lifestyle.allwomenstalk.com/cheap-but-creative-ways-to-have-fun/)
-- [fall flowers gif](https://lifestyle.allwomenstalk.com/fun-activities-to-do-this-fall/)
 - [what to do when your single and lonely](https://inspiration.allwomenstalk.com/things-to-do-when-youre-single-and-lonely/)
-- [best games for young adults](https://lifestyle.allwomenstalk.com/kids-games-that-are-fun-to-play-as-an-adult/)
-- [satisfying lips face](https://lifestyle.allwomenstalk.com/simple-pleasures-we-all-love/)
-- [fun things to do with someone you like](https://love.allwomenstalk.com/fun-group-date-ideas/)
-- [king princess parents](https://parenting.allwomenstalk.com/fun-experiments-for-kids/)
-- [movie night snack table](https://movies.allwomenstalk.com/how-to-host-a-movie-night/)
 - [adventurous things to try in bed](https://love.allwomenstalk.com/things-to-put-on-your-dirty-bucket-list/)
+- [fall flowers gif](https://lifestyle.allwomenstalk.com/fun-activities-to-do-this-fall/)
+- [satisfying lips face](https://lifestyle.allwomenstalk.com/simple-pleasures-we-all-love/)
+- [king princess parents](https://parenting.allwomenstalk.com/fun-experiments-for-kids/)
 - [7 Everyday Fun Hobbies ...](https://allwomenstalk.com/7-everyday-fun-hobbies/)
 - [7 Fun Things to do with Your Sister ...](https://allwomenstalk.com/7-fun-things-to-do-with-your-sister/)
 

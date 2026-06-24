@@ -3,7 +3,7 @@ title: "7 Warning Signs That You've Chosen the Wrong Major ..."
 description: "You're Bored in Class; You Don't Feel Challenged; You're at the Beach More than Class; You do Just Enough to Get by; Every Other Major Sounds Exciting; More ..."
 url: "https://teen.allwomenstalk.com/warning-signs-that-youve-chosen-the-wrong-major/"
 category: "teen"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Warning Signs That You've Chosen the Wrong Major ...
@@ -42,16 +42,16 @@ Choosing a college major is challenging, especially if you're interested in mult
 
 ## Related Posts
 
-- [how to tell if you're getting enough sleep](https://health.allwomenstalk.com/telling-signs-youre-not-getting-enough-sleep/)
-- [teen namen](https://teen.allwomenstalk.com/signs-youre-ready-for-the-semester-to-end/)
 - [how often should you replace your makeup](https://makeup.allwomenstalk.com/signs-you-need-a-new-foundation/)
-- [signs you're gonna be successful](https://inspiration.allwomenstalk.com/signs-youre-going-to-live-a-successful-life/)
-- [am i alpha female](https://inspiration.allwomenstalk.com/are-you-an-alpha-female-here-are-the-signs/)
-- [7 signs of a controlling woman](https://inspiration.allwomenstalk.com/signs-youre-a-confident-women/)
-- [fangirl tumblr](https://lifestyle.allwomenstalk.com/signs-you-are-definitely-a-fan-girl/)
-- [ombivert](https://lifestyle.allwomenstalk.com/psychology-101-here-are-the-signs-you-are-an-ambivert/)
 - [7 signs of a true friend](https://lifestyle.allwomenstalk.com/signs-youre-a-friend-others-are-happy-to-have/)
+- [how to tell if you're getting enough sleep](https://health.allwomenstalk.com/telling-signs-youre-not-getting-enough-sleep/)
+- [ombivert](https://lifestyle.allwomenstalk.com/psychology-101-here-are-the-signs-you-are-an-ambivert/)
 - [how to know if your happy](https://inspiration.allwomenstalk.com/signs-youre-truly-happy/)
+- [am i alpha female](https://inspiration.allwomenstalk.com/are-you-an-alpha-female-here-are-the-signs/)
+- [teen namen](https://teen.allwomenstalk.com/signs-youre-ready-for-the-semester-to-end/)
+- [fangirl tumblr](https://lifestyle.allwomenstalk.com/signs-you-are-definitely-a-fan-girl/)
+- [7 signs of a controlling woman](https://inspiration.allwomenstalk.com/signs-youre-a-confident-women/)
+- [signs you're gonna be successful](https://inspiration.allwomenstalk.com/signs-youre-going-to-live-a-successful-life/)
 - [7 Signs That You Are a Cheapskate ...](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
 - [9 Things That Can Harm Your Career ...](https://allwomenstalk.com/9-things-that-can-harm-your-career/)
 

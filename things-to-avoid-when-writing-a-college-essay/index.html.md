@@ -3,7 +3,7 @@ title: "Everything You Need to Avoid on Your College Essays ..."
 description: "Boasting; Self-pitying; Simple Mistakes; Rushing; Lying; More ..."
 url: "https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/"
 category: "teen"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Everything You Need to Avoid on Your College Essays ...
@@ -42,15 +42,15 @@ The college admission process is taxing. If your university of choice requires a
 
 ## Related Posts
 
-- [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
-- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
 - [keep people in your life](https://lifestyle.allwomenstalk.com/people-to-keep-out-of-your-life/)
 - [what not to wear on a date](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-first-date/)
+- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
+- [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
+- [true friends don't](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
+- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
 - [embarrassing songs in public](https://music.allwomenstalk.com/awkward-songs-you-should-never-sing-in-public/)
 - [stage of crushing](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
-- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
 - [embarrassing school photos](https://lifestyle.allwomenstalk.com/embarrassing-high-school-situations-you-never-mention-in-your-adult-life/)
-- [true friends don't](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
 - [which words should not be used in this essay?](https://teen.allwomenstalk.com/words-to-avoid-using-in-essays-to-get-higher-grades/)
 - [7 Things to Not Include in a Resume ...](https://money.allwomenstalk.com/things-to-not-include-in-a-resume/)
 - [7 Ways to Ruin Your Resume ...](https://allwomenstalk.com/7-ways-to-ruin-your-resume/)
