@@ -3,7 +3,7 @@ title: "7 Things to do when You're in College ..."
 description: "Crash a Party; Abuse Your Discounts; Make Weird Friends and Be Eccentric with Them; Get over Your Fears; Study Abroad; More ..."
 url: "https://teen.allwomenstalk.com/things-to-do-when-youre-in-college/"
 category: "teen"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Things to do when You're in College ...
@@ -42,16 +42,16 @@ Many people say that college is the best four years of their life. Being in coll
 
 ## Related Posts
 
-- [7 Potential Ways to Fund Your College Education .....](https://teen.allwomenstalk.com/potential-ways-to-fund-your-college-education/)
-- [7 Essay Mistakes to Avoid to Get a Higher Grade .....](https://teen.allwomenstalk.com/essay-mistakes-to-avoid-to-get-a-higher-grade/)
-- [does college pay off](https://teen.allwomenstalk.com/college-courses-that-will-pay-off/)
-- [what kind of job can i get on campus](https://money.allwomenstalk.com/great-college-campus-jobs-to-have/)
-- [7 Amazing Tech Schools to Consider ...](https://teen.allwomenstalk.com/amazing-tech-schools-to-consider/)
-- [swarthmore college notable alumni](https://teen.allwomenstalk.com/liberal-arts-colleges-to-consider/)
-- [7 Factors to Consider before Accepting a College O...](https://teen.allwomenstalk.com/factors-to-consider-before-accepting-a-college-offer/)
-- [7 Great Part Time Jobs for College Students ...](https://money.allwomenstalk.com/great-part-time-jobs-for-college-students/)
 - [7 Learning Tools as Alternatives to Textbooks ...](https://teen.allwomenstalk.com/learning-tools-as-alternatives-to-textbooks/)
+- [7 Factors to Consider before Accepting a College O...](https://teen.allwomenstalk.com/factors-to-consider-before-accepting-a-college-offer/)
+- [swarthmore college notable alumni](https://teen.allwomenstalk.com/liberal-arts-colleges-to-consider/)
+- [does college pay off](https://teen.allwomenstalk.com/college-courses-that-will-pay-off/)
+- [7 Potential Ways to Fund Your College Education .....](https://teen.allwomenstalk.com/potential-ways-to-fund-your-college-education/)
+- [what kind of job can i get on campus](https://money.allwomenstalk.com/great-college-campus-jobs-to-have/)
+- [7 Essay Mistakes to Avoid to Get a Higher Grade .....](https://teen.allwomenstalk.com/essay-mistakes-to-avoid-to-get-a-higher-grade/)
 - [lessons learned in college](https://teen.allwomenstalk.com/must-know-lessons-learned-in-college/)
+- [7 Amazing Tech Schools to Consider ...](https://teen.allwomenstalk.com/amazing-tech-schools-to-consider/)
+- [7 Great Part Time Jobs for College Students ...](https://money.allwomenstalk.com/great-part-time-jobs-for-college-students/)
 - [10 Healthy Habits to Start in College ...](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 

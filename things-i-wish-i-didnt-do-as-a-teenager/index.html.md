@@ -3,7 +3,7 @@ title: "7 Things I Wish I Didn't do as a Teenager ..."
 description: "If You Don’t Know What You Want to Be; If You’re Worried about Sex; If You Don’t like the Way You Look; If People Pick on You; If You Feel Different; More ..."
 url: "https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/"
 category: "teen"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Things I Wish I Didn't do as a Teenager ...
@@ -42,16 +42,16 @@ I hope this helps in some small way. If you’re ever feeling a bit hopeless, th
 
 ## Related Posts
 
-- [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
-- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
-- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
-- [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
-- [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
-- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
-- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
 - [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
-- [men's acc/gft marshalls](https://fashion.allwomenstalk.com/worst-things-to-wear-in-the-workplace/)
+- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
+- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
+- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
+- [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
+- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
 - [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
+- [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
+- [men's acc/gft marshalls](https://fashion.allwomenstalk.com/worst-things-to-wear-in-the-workplace/)
+- [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)
 - [7 Things I Miss about College ...](https://allwomenstalk.com/7-things-i-miss-about-college/)
 

@@ -3,7 +3,7 @@ title: "7 Things to Avoid when Writing an Essay ..."
 description: "Contractions; Slang; \"I\"; Logical Fallacies; Going off on a Tangent; More ..."
 url: "https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/"
 category: "teen"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Things to Avoid when Writing an Essay ...
@@ -58,16 +58,16 @@ Which of these are you often guilty of? Do you have any other tips for budding e
 
 ## Related Posts
 
-- [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
 - [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
 - [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
-- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
+- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
 - [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
+- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
+- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
+- [what things should friends never do?](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
+- [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
 - [what are you glad your parents don't know about yo...](https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/)
 - [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
-- [what things should friends never do?](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
-- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
-- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
 - [7 Things to Not Include in a Resume ...](https://money.allwomenstalk.com/things-to-not-include-in-a-resume/)
 - [5 Mistakes to Avoid...](https://allwomenstalk.com/5-mistakes-to-avoid/)
 

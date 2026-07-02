@@ -3,7 +3,7 @@ title: "7 Hilarious Ideas for Memorable Senior Year Pranks ..."
 description: "Chicken in the Halls; Post-its Everywhere; Cups Filled with Water; Alarm Clocks; Color the Pool; More ..."
 url: "https://teen.allwomenstalk.com/hilarious-ideas-for-memorable-senior-year-pranks/"
 category: "teen"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Hilarious Ideas for Memorable Senior Year Pranks ...
@@ -42,16 +42,16 @@ Senior pranks are very hard to pull off without getting everyone into serious tr
 
 ## Related Posts
 
-- [movies for slumber party](https://lifestyle.allwomenstalk.com/creative-slumber-party-ideas-that-will-put-girly-movies-to-shame/)
 - [fun things to do with mom and daughter near me](https://parenting.allwomenstalk.com/fun-activities-to-do-with-your-daughter/)
 - [how to celebrate your birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-birthday/)
 - [weird online tests](https://lifestyle.allwomenstalk.com/fun-online-quizzes-to-take-when-youre-bored-out-of-your-mind/)
-- [games with friends](https://lifestyle.allwomenstalk.com/interesting-party-games-to-play-with-your-friends/)
+- [what to do when snowed in](https://lifestyle.allwomenstalk.com/fun-things-to-do-if-youre-snowed-in/)
 - [two player card games for kids](https://lifestyle.allwomenstalk.com/great-and-fun-card-games-for-kids/)
+- [games with friends](https://lifestyle.allwomenstalk.com/interesting-party-games-to-play-with-your-friends/)
+- [fun two person card games](https://lifestyle.allwomenstalk.com/ways-to-entertain-yourself-with-a-deck-of-cards/)
+- [movies for slumber party](https://lifestyle.allwomenstalk.com/creative-slumber-party-ideas-that-will-put-girly-movies-to-shame/)
 - [what types of parties are there](https://lifestyle.allwomenstalk.com/different-parties-to-host-for-friends-and-family-this-year/)
 - [teenager job ideas](https://teen.allwomenstalk.com/great-job-ideas-for-teenagers-that-are-worth-taking-up/)
-- [what to do when snowed in](https://lifestyle.allwomenstalk.com/fun-things-to-do-if-youre-snowed-in/)
-- [fun two person card games](https://lifestyle.allwomenstalk.com/ways-to-entertain-yourself-with-a-deck-of-cards/)
 - [7 Ways to Celebrate a Teen's Birthday ...](https://parenting.allwomenstalk.com/7-ways-to-celebrate-a-teens-birthday/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 

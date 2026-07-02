@@ -3,7 +3,7 @@ title: "7 Lies You Were Told in High School ..."
 description: "These Will Be the Best Four Years of Your Life; Writing in Cursive is a Necessary Skill; Phones Will Be Confiscated; You Will Use This Knowledge One Day; Every Teachers is Here to Help You; More ..."
 url: "https://teen.allwomenstalk.com/lies-you-were-told-in-high-school/"
 category: "teen"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Lies You Were Told in High School ...
@@ -42,14 +42,14 @@ Some things that you are told repeatedly in high school are just not true, and I
 
 ## Related Posts
 
+- [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
+- [one thing that money can't buy](https://money.allwomenstalk.com/things-money-cant-buy/)
+- [gente en disney](https://travel.allwomenstalk.com/types-of-people-you-meet-in-disneyland/)
 - [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
 - [monti say yes to the dress](https://wedding.allwomenstalk.com/helpful-things-you-can-learn-from-watching-say-yes-to-the-dress/)
-- [one thing that money can't buy](https://money.allwomenstalk.com/things-money-cant-buy/)
 - [what is the lesson of the giving tree](https://books.allwomenstalk.com/lessons-from-shel-silversteins-the-giving-tree/)
-- [growing up with you was fun](https://lifestyle.allwomenstalk.com/awesome-things-about-growing-up/)
-- [gente en disney](https://travel.allwomenstalk.com/types-of-people-you-meet-in-disneyland/)
 - [hansel and gretal moral](https://inspiration.allwomenstalk.com/life-lessons-from-hansel-and-gretel/)
-- [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
+- [growing up with you was fun](https://lifestyle.allwomenstalk.com/awesome-things-about-growing-up/)
 - [3 interesting facts about rudyard kipling](https://inspiration.allwomenstalk.com/life-lessons-from-rudyard-kipling/)
 - [no impact project](https://books.allwomenstalk.com/lessons-you-can-learn-from-the-no-impact-man/)
 - [10 Diet Myths ...](https://allwomenstalk.com/10-diet-myths/)

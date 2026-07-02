@@ -3,7 +3,7 @@ title: "7 Things You Should Never do as a Friend ..."
 description: "Get Mad at Friends for Hanging out with Other People; Flake out on Every Plan; Indirectly Post a Status about Them; Vent about Them to Other People; Intentionally Exclude Them; More ..."
 url: "https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/"
 category: "teen"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Things You Should Never do as a Friend ...
@@ -42,15 +42,15 @@ Friendships take a lot of mutual work and there are certain things you can do or
 
 ## Related Posts
 
-- [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
-- [what are you glad your parents don't know about yo...](https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/)
 - [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
-- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
-- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
-- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
-- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
-- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
+- [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
 - [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
+- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
+- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
+- [what are you glad your parents don't know about yo...](https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/)
+- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
+- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
+- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
 - [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
 - [7 Things You Shouldn't do on Facebook ...](https://allwomenstalk.com/7-things-you-shouldnt-do-on-facebook/)
 - [7 Signs You Shouldn't Befriend Your Ex ...](https://allwomenstalk.com/7-signs-you-shouldnt-befriend-your-ex/)
