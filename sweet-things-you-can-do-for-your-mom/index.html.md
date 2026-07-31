@@ -42,16 +42,16 @@ Doing sweet things for your mom will not only show her how much you love her, it
 
 ## Related Posts
 
-- [e mail anniversary cards](https://lifestyle.allwomenstalk.com/times-when-sending-a-card-is-still-better-than-e-mail/)
-- [once in a lifetime date](https://love.allwomenstalk.com/once-in-a-lifetime-date-ideas-to-splurge-on/)
-- [Create the Perfect Date with These Marvelous Must ...](https://love.allwomenstalk.com/date-night-must-haves/)
 - [7 Wonderful Stay-at-home Date Ideas ...](https://love.allwomenstalk.com/wonderful-stay-at-home-date-ideas/)
-- [simple meaning of love](https://love.allwomenstalk.com/simple-words-youll-finally-understand-once-you-fall-in-love/)
-- [Daily AW: a Couple's Romantic Photos Kissing aroun...](https://love.allwomenstalk.com/daily-aw-a-couples-romantic-photos-kissing-around-the-world/)
-- [7 Totally Romantic Summer Date Ideas ...](https://love.allwomenstalk.com/totally-romantic-summer-date-ideas/)
+- [e mail anniversary cards](https://lifestyle.allwomenstalk.com/times-when-sending-a-card-is-still-better-than-e-mail/)
 - [sweetheart stories](https://books.allwomenstalk.com/love-stories-that-make-the-perfect-gifts-for-your-sweetheart/)
-- [9 Heart Melting Examples of Real Romance ...](https://love.allwomenstalk.com/heart-melting-examples-of-real-romance/)
+- [7 Totally Romantic Summer Date Ideas ...](https://love.allwomenstalk.com/totally-romantic-summer-date-ideas/)
+- [simple meaning of love](https://love.allwomenstalk.com/simple-words-youll-finally-understand-once-you-fall-in-love/)
+- [Create the Perfect Date with These Marvelous Must ...](https://love.allwomenstalk.com/date-night-must-haves/)
+- [once in a lifetime date](https://love.allwomenstalk.com/once-in-a-lifetime-date-ideas-to-splurge-on/)
 - [7 New Couple Activities to Spice It up ...](https://love.allwomenstalk.com/new-couple-activities-to-spice-it-up/)
+- [Daily AW: a Couple's Romantic Photos Kissing aroun...](https://love.allwomenstalk.com/daily-aw-a-couples-romantic-photos-kissing-around-the-world/)
+- [9 Heart Melting Examples of Real Romance ...](https://love.allwomenstalk.com/heart-melting-examples-of-real-romance/)
 - [7 Things to do for Your Husband ...](https://love.allwomenstalk.com/things-to-do-for-your-husband/)
 - [7 Fun Things to do with Your Sister ...](https://allwomenstalk.com/7-fun-things-to-do-with-your-sister/)
 

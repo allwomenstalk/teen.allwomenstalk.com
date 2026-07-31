@@ -42,16 +42,16 @@ The transition from childhood to adulthood is a rocky path so you need to lower 
 
 ## Related Posts
 
-- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
 - [how to stop telling yourself negative things](https://inspiration.allwomenstalk.com/things-to-stop-telling-yourself-if-you-want-to-be-successful/)
 - [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
-- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
+- [money is the only thing that matters](https://money.allwomenstalk.com/things-that-matter-more-than-money/)
+- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
+- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
 - [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
 - [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
 - [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
-- [money is the only thing that matters](https://money.allwomenstalk.com/things-that-matter-more-than-money/)
 - [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
-- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
+- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
 

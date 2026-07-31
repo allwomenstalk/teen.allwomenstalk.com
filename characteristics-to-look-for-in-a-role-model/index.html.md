@@ -50,16 +50,16 @@ We all need role models in our lives, people who are shining examples of who we 
 
 ## Related Posts
 
-- [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
-- [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
-- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
-- [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
-- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
-- [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
 - [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
+- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
+- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
+- [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
 - [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
-- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
+- [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
+- [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
 - [what to do when embarrassed at school](https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/)
+- [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
+- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
 - [9 Essential Ways to Be a Good Parent ...](https://parenting.allwomenstalk.com/essential-ways-to-be-a-good-parent/)
 - [10 Factors to Consider when Looking for a Pet ...](https://allwomenstalk.com/10-factors-to-consider-when-looking-for-a-pet/)
 

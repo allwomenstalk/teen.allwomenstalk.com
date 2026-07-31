@@ -24,16 +24,16 @@ Try not to let thoughts about past exams affect your concentration and enthusias
 
 ## Related Posts
 
-- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
-- [hidden reasons behind stress](https://health.allwomenstalk.com/hidden-sources-of-stress-in-your-life/)
-- [flower mental health](https://gardening.allwomenstalk.com/flowers-that-can-improve-your-mental-health/)
-- [turn on study](https://fitness.allwomenstalk.com/how-to-squeeze-in-exercise-during-your-study-breaks-for-busy-students/)
-- [busters stress](https://health.allwomenstalk.com/effective-stress-busters-everyone-should-know/)
-- [Take Time out for YOU ...](https://allwomenstalk.com/take-time-out-for-you/)
-- [energy zapping](https://health.allwomenstalk.com/things-that-zap-your-energy-on-a-daily-basis/)
-- [Melt the Day's Stress Away](https://allwomenstalk.com/melt-the-days-stress-away/)
-- [drained empath quotes](https://inspiration.allwomenstalk.com/an-empaths-guide-to-self-care/)
 - [stress reliever drawing](https://diy.allwomenstalk.com/ways-to-relieve-stress-through-drawing/)
+- [energy zapping](https://health.allwomenstalk.com/things-that-zap-your-energy-on-a-daily-basis/)
+- [busters stress](https://health.allwomenstalk.com/effective-stress-busters-everyone-should-know/)
+- [flower mental health](https://gardening.allwomenstalk.com/flowers-that-can-improve-your-mental-health/)
+- [Take Time out for YOU ...](https://allwomenstalk.com/take-time-out-for-you/)
+- [drained empath quotes](https://inspiration.allwomenstalk.com/an-empaths-guide-to-self-care/)
+- [hidden reasons behind stress](https://health.allwomenstalk.com/hidden-sources-of-stress-in-your-life/)
+- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
+- [Melt the Day's Stress Away](https://allwomenstalk.com/melt-the-days-stress-away/)
+- [turn on study](https://fitness.allwomenstalk.com/how-to-squeeze-in-exercise-during-your-study-breaks-for-busy-students/)
 - [10 Ways to Keep a Positive Attitude ...](https://allwomenstalk.com/10-ways-to-keep-a-positive-attitude/)
 - [9 Ways to Be More Positive ...](https://allwomenstalk.com/ways-to-be-more-positive/)
 

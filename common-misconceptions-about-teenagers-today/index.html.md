@@ -42,16 +42,16 @@ It’s terrible to face all of the misconceptions about today’s teenagers, but
 
 ## Related Posts
 
-- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
-- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
 - [though provoking questions](https://inspiration.allwomenstalk.com/thought-provoking-questions-to-ask-yourself-about-your-personality/)
-- [misconceptions of introverts](https://lifestyle.allwomenstalk.com/very-popular-myths-about-introverts-that-arent-true/)
 - [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
-- [what's your favourite](https://food.allwomenstalk.com/things-your-cup-of-tea-might-say-about-your-personality/)
-- [the telltale signs of a highly sensitive person](https://lifestyle.allwomenstalk.com/things-highly-sensitive-people-do-differently/)
 - [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
-- [misconceptions of happiness](https://inspiration.allwomenstalk.com/happiness-myths-that-could-be-holding-you-back/)
+- [the telltale signs of a highly sensitive person](https://lifestyle.allwomenstalk.com/things-highly-sensitive-people-do-differently/)
 - [gift for forgiveness](https://inspiration.allwomenstalk.com/wonderful-gifts-of-forgiveness-that-you-should-always-remember/)
+- [what's your favourite](https://food.allwomenstalk.com/things-your-cup-of-tea-might-say-about-your-personality/)
+- [misconceptions of happiness](https://inspiration.allwomenstalk.com/happiness-myths-that-could-be-holding-you-back/)
+- [misconceptions of introverts](https://lifestyle.allwomenstalk.com/very-popular-myths-about-introverts-that-arent-true/)
+- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
+- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)
 

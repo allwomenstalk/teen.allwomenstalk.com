@@ -56,16 +56,16 @@ These are just some of many crazy college traditions that happen across the coun
 
 ## Related Posts
 
-- [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
-- [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
-- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
-- [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
-- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
+- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
+- [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
 - [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
 - [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
-- [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
+- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
+- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
+- [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
+- [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
 - [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
-- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
+- [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
 - [7 Funny Superstitions ...](https://allwomenstalk.com/7-funny-superstitions/)
 - [7 Hilarious Hoaxes That Will Keep You Guessing ...](https://7fun.net/hilarious-hoaxes-that-will-keep-you-guessing/)
 

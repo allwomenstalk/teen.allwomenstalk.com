@@ -46,15 +46,15 @@ There are a lot of things you must do if you want to get into a prestigious coll
 
 ## Related Posts
 
-- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
 - [a heavy workload](https://teen.allwomenstalk.com/quick-tips-for-managing-a-heavy-workload-in-college/)
-- [why are ivy leagues so expensive](https://teen.allwomenstalk.com/benefits-of-an-ivy-league-education/)
-- [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
-- [senior year of high school quotes](https://teen.allwomenstalk.com/quotes-to-keep-in-mind-during-senior-year/)
-- [best colleges for food allergies](https://teen.allwomenstalk.com/tips-to-deal-with-food-allergies-at-college/)
 - [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
+- [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
+- [best colleges for food allergies](https://teen.allwomenstalk.com/tips-to-deal-with-food-allergies-at-college/)
 - [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
+- [why are ivy leagues so expensive](https://teen.allwomenstalk.com/benefits-of-an-ivy-league-education/)
 - [problems in high school](https://teen.allwomenstalk.com/horrible-high-school-problems-you-wont-worry-about-in-college/)
+- [senior year of high school quotes](https://teen.allwomenstalk.com/quotes-to-keep-in-mind-during-senior-year/)
+- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
 - [infographic topics for college students](https://teen.allwomenstalk.com/incredibly-useful-infographic-for-students/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [7 Ways to Get Better Grades ...](https://allwomenstalk.com/7-ways-to-get-better-grades/)

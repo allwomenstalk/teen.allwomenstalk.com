@@ -42,16 +42,16 @@ Well, there you have it! These are seven types of "friends" that you shouldn't f
 
 ## Related Posts
 
-- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
-- [personality turn offs](https://love.allwomenstalk.com/traits-that-are-turn-offs-for-any-gender/)
 - [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
-- [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
-- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
-- [how to deal with a bully at school](https://teen.allwomenstalk.com/types-of-people-to-avoid-in-high-school/)
 - [the real reason your teenager is ignoring you the ...](https://parenting.allwomenstalk.com/things-your-teen-will-do-that-you-should-probably-ignore/)
-- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
+- [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
+- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
 - [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
 - [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
+- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
+- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
+- [personality turn offs](https://love.allwomenstalk.com/traits-that-are-turn-offs-for-any-gender/)
+- [how to deal with a bully at school](https://teen.allwomenstalk.com/types-of-people-to-avoid-in-high-school/)
 - [7 Signs You Shouldn't Befriend Your Ex ...](https://allwomenstalk.com/7-signs-you-shouldnt-befriend-your-ex/)
 - [Friendship 101: 7 Things to Avoid ...](https://allwomenstalk.com/friendship-101-7-things-to-avoid/)
 

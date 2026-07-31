@@ -33,15 +33,15 @@ Its okay if when you are on campus things are not how you thought they would be,
 ## Related Posts
 
 - [Awesome Ways to Start Prepping for Exams Now ...](https://teen.allwomenstalk.com/ways-to-start-prepping-for-exams-now/)
-- [how do college dorms stay safe urban safety soluti...](https://lifestyle.allwomenstalk.com/smart-tips-on-how-to-stay-safe-on-campus/)
-- [Awesome Ways to Make Your Money Last ⏳ in College ...](https://money.allwomenstalk.com/awesome-ways-to-make-your-money-last-in-college/)
 - [Awesome Tips for How to Avoid Getting a College Re...](https://teen.allwomenstalk.com/awesome-tips-for-how-to-avoid-getting-a-college-rejection/)
+- [5 Exceptional Ways to Alleviate Stress during Coll...](https://teen.allwomenstalk.com/exceptional-ways-to-alleviate-stress-during-college-application-season/)
 - [Pro Tips for Managing Anxiety at College ...](https://health.allwomenstalk.com/tips-for-managing-anxiety-at-college/)
+- [bad studying habits](https://lifestyle.allwomenstalk.com/the-bad-habits-that-can-wreck-your-studies/)
+- [Awesome Ways to Make Your Money Last ⏳ in College ...](https://money.allwomenstalk.com/awesome-ways-to-make-your-money-last-in-college/)
+- [How to Manage Multiple College Deadlines ...](https://teen.allwomenstalk.com/how-to-manage-multiple-college-deadlines/)
 - [The Best Tips Ever to Ace Exams ...](https://teen.allwomenstalk.com/best-tips-to-ace-exams/)
 - [how to make money in grad school](https://money.allwomenstalk.com/ways-to-earn-money-in-grad-school/)
-- [How to Manage Multiple College Deadlines ...](https://teen.allwomenstalk.com/how-to-manage-multiple-college-deadlines/)
-- [5 Exceptional Ways to Alleviate Stress during Coll...](https://teen.allwomenstalk.com/exceptional-ways-to-alleviate-stress-during-college-application-season/)
-- [bad studying habits](https://lifestyle.allwomenstalk.com/the-bad-habits-that-can-wreck-your-studies/)
+- [how do college dorms stay safe urban safety soluti...](https://lifestyle.allwomenstalk.com/smart-tips-on-how-to-stay-safe-on-campus/)
 - [10 Ways to Help You Decide What You Want to do wit...](https://inspiration.allwomenstalk.com/ways-to-help-you-decide-what-you-want-to-do-with-your-life/)
 - [7 Tips for Finding Your Career Calling in Life ...](https://lifestyle.allwomenstalk.com/tips-for-finding-your-career-calling-in-life/)
 

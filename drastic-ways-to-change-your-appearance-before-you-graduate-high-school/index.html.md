@@ -43,16 +43,16 @@ So, my fellow Class of 2015ers, what do you think? Are you going to make any of 
 
 ## Related Posts
 
-- [perfect date gif](https://funny.allwomenstalk.com/gifs-that-describe-what-dating-is-like-in-college/)
-- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
-- [lonely in college](https://lifestyle.allwomenstalk.com/is-college-life-lonely-invaluable-cures-you-wont-learn-in-class/)
-- [how to attract boys in school](https://teen.allwomenstalk.com/heres-how-to-become-popular-in-school/)
-- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
-- [important things to remember](https://lifestyle.allwomenstalk.com/graduation-comes-with-expectations-what-to-remember-as-your-accept-your-diploma/)
-- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
-- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
 - [how to decide between 2 colleges](https://teen.allwomenstalk.com/decisions-decisions-how-to-choose-between-your-top-two-colleges/)
+- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
+- [important things to remember](https://lifestyle.allwomenstalk.com/graduation-comes-with-expectations-what-to-remember-as-your-accept-your-diploma/)
+- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
+- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
+- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
 - [outfit for graduation party](https://fashion.allwomenstalk.com/from-your-graduation-party-to-your-graduation-outfit-tips-all-seniors-should-see/)
+- [how to attract boys in school](https://teen.allwomenstalk.com/heres-how-to-become-popular-in-school/)
+- [perfect date gif](https://funny.allwomenstalk.com/gifs-that-describe-what-dating-is-like-in-college/)
+- [lonely in college](https://lifestyle.allwomenstalk.com/is-college-life-lonely-invaluable-cures-you-wont-learn-in-class/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Hair Styles to Make You Look Younger ...](https://hair.allwomenstalk.com/hair-styles-to-make-you-look-younger/)
 

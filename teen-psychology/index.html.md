@@ -46,16 +46,16 @@ Let me finish with this – teenagers’ brains work differently, so they will n
 
 ## Related Posts
 
-- [female body language](https://inspiration.allwomenstalk.com/things-body-language-says-about-you/)
+- [what really matters in life](https://inspiration.allwomenstalk.com/things-that-really-matter-in-life/)
+- [relationship detachment](https://inspiration.allwomenstalk.com/the-relationship-between-detachment-and-success/)
 - [harsh cable tv](https://lifestyle.allwomenstalk.com/how-technology-has-taken-over-our-lives/)
 - [we must accept finite disappointment meaning](https://inspiration.allwomenstalk.com/things-truly-worth-hoping-for/)
 - [what does clutter say about a person](https://lifestyle.allwomenstalk.com/what-your-hidden-clutter-says-about-your-personality/)
-- [relationship detachment](https://inspiration.allwomenstalk.com/the-relationship-between-detachment-and-success/)
-- [what really matters in life](https://inspiration.allwomenstalk.com/things-that-really-matter-in-life/)
+- [female body language](https://inspiration.allwomenstalk.com/things-body-language-says-about-you/)
 - [being only child](https://lifestyle.allwomenstalk.com/things-you-can-relate-to-if-youre-an-only-child/)
-- [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
-- [what makes someone sophisticated](https://inspiration.allwomenstalk.com/ways-to-be-a-sophisticated-millennial/)
 - [age is just a number cake](https://beauty.allwomenstalk.com/iconic-women-who-prove-that-age-is-just-a-number/)
+- [what makes someone sophisticated](https://inspiration.allwomenstalk.com/ways-to-be-a-sophisticated-millennial/)
+- [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
 - [Baby Brain ...](https://allwomenstalk.com/baby-brain/)
 - [7 Reasons Teenagers Want to Drop out of School ...](https://allwomenstalk.com/7-reasons-teenagers-want-to-drop-out-of-school/)
 

@@ -42,15 +42,15 @@ Second semester of senior year in high school is really unlike any other. Everyo
 
 ## Related Posts
 
-- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
-- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
-- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
-- [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
 - [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
+- [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
 - [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
 - [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
-- [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
 - [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
+- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
+- [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
+- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
+- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
 - [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [8 Things You Need to Know about Your Teen ...](https://parenting.allwomenstalk.com/things-you-need-to-know-about-your-teen/)

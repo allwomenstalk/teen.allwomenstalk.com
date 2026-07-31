@@ -42,16 +42,16 @@ It's easy to make a slumber party a night to remember, but it’s also easy to t
 
 ## Related Posts
 
-- [stuff to do with your dad](https://teen.allwomenstalk.com/fun-things-you-can-do-with-your-dad/)
-- [bucket list top](https://travel.allwomenstalk.com/amazing-adventurous-bucket-list-ideas/)
-- [day after prom ideas](https://teen.allwomenstalk.com/fun-after-prom-ideas-to-finish-off-the-night/)
-- [what do you do at a bachelorette party](https://wedding.allwomenstalk.com/fabulous-things-you-can-do-instead-of-a-bachelorette-party/)
-- [sports to try](https://fitness.allwomenstalk.com/fun-sports-you-have-to-try/)
-- [my friend over there thinks you're cute](https://teen.allwomenstalk.com/fun-activities-to-do-with-your-guy-friends/)
-- [how to help on earth day](https://lifestyle.allwomenstalk.com/ways-to-get-involved-in-earth-day/)
 - [prom night activities](https://teen.allwomenstalk.com/fun-and-exciting-alternatives-to-prom/)
+- [sports to try](https://fitness.allwomenstalk.com/fun-sports-you-have-to-try/)
+- [day after prom ideas](https://teen.allwomenstalk.com/fun-after-prom-ideas-to-finish-off-the-night/)
 - [how old is easter](https://inspiration.allwomenstalk.com/easter-traditions-that-will-never-get-old/)
+- [what do you do at a bachelorette party](https://wedding.allwomenstalk.com/fabulous-things-you-can-do-instead-of-a-bachelorette-party/)
+- [stuff to do with your dad](https://teen.allwomenstalk.com/fun-things-you-can-do-with-your-dad/)
+- [my friend over there thinks you're cute](https://teen.allwomenstalk.com/fun-activities-to-do-with-your-guy-friends/)
 - [games to play at baby shower](https://parenting.allwomenstalk.com/fun-baby-shower-games-that-your-guests-and-you-will-love/)
+- [bucket list top](https://travel.allwomenstalk.com/amazing-adventurous-bucket-list-ideas/)
+- [how to help on earth day](https://lifestyle.allwomenstalk.com/ways-to-get-involved-in-earth-day/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [7 Ideas for a Sweet 16 Birthday Party ...](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
 

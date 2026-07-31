@@ -42,16 +42,16 @@ Senior year is a time to be excited for! You've worked hard for the past eleven 
 
 ## Related Posts
 
-- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
-- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
-- [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
-- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
-- [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
-- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
-- [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
-- [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
-- [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
 - [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
+- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
+- [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
+- [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
+- [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
+- [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
+- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
+- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
+- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
+- [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
 - [7 Things to do after Your High School Graduation ....](https://allwomenstalk.com/7-things-to-do-after-graduation/)
 - [9 Tips for an Extraordinary School Year ...](https://allwomenstalk.com/9-tips-for-an-extraordinary-school-year/)
 

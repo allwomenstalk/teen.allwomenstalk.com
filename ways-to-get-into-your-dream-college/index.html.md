@@ -43,15 +43,15 @@ Colleges today seem like they’re becoming more and more elite. We should be pr
 ## Related Posts
 
 - [clubs to join in high school](https://teen.allwomenstalk.com/clubs-to-join-at-your-high-school/)
+- [advantages of taking ap classes in high school](https://lifestyle.allwomenstalk.com/pros-and-cons-of-taking-an-a-p-course-in-high-school/)
+- [which gpa is more important](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-your-gpa/)
+- [commuter school example](https://lifestyle.allwomenstalk.com/tips-to-follow-when-going-to-a-commuter-college/)
+- [adopting a healthier lifestyle](https://teen.allwomenstalk.com/important-reasons-to-adopt-a-healthy-lifestyle-in-high-school/)
+- [will i get a boyfriend in college](https://love.allwomenstalk.com/ways-for-college-students-to-find-a-boyfriend-on-campus/)
+- [crazy things to do senior year of high school](https://teen.allwomenstalk.com/things-you-need-to-before-you-graduate-high-school/)
 - [good things about high school](https://teen.allwomenstalk.com/reasons-to-try-your-best-in-high-school/)
 - [7 types of friends in a group](https://teen.allwomenstalk.com/types-of-friends-to-make-in-high-school/)
-- [commuter school example](https://lifestyle.allwomenstalk.com/tips-to-follow-when-going-to-a-commuter-college/)
-- [will i get a boyfriend in college](https://love.allwomenstalk.com/ways-for-college-students-to-find-a-boyfriend-on-campus/)
-- [advantages of taking ap classes in high school](https://lifestyle.allwomenstalk.com/pros-and-cons-of-taking-an-a-p-course-in-high-school/)
-- [crazy things to do senior year of high school](https://teen.allwomenstalk.com/things-you-need-to-before-you-graduate-high-school/)
-- [which gpa is more important](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-your-gpa/)
 - [movies about college](https://movies.allwomenstalk.com/ways-the-movies-portray-college-are-wrong/)
-- [adopting a healthier lifestyle](https://teen.allwomenstalk.com/important-reasons-to-adopt-a-healthy-lifestyle-in-high-school/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [10 Ways to Choose a College ...](https://allwomenstalk.com/10-ways-to-choose-a-college/)
 

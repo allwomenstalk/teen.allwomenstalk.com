@@ -42,16 +42,16 @@ Getting hired anywhere during high school is a great privilege, and you should t
 
 ## Related Posts
 
+- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
+- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
+- [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
 - [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
 - [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
-- [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
-- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
-- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
 - [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
+- [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
 - [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
 - [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
-- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
-- [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
+- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
 - [7 Tips Needed for Those Going Back to School ...](https://allwomenstalk.com/7-tips-needed-for-those-going-back-to-school/)
 - [7 Tips a Highschool Student Should Have ...](https://allwomenstalk.com/7-tips-a-highschool-student-should-have/)
 

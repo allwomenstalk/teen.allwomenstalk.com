@@ -43,12 +43,12 @@ There are literally hundreds of reasons to love being sixteen, but it’s up to 
 ## Related Posts
 
 - [aldi tallahassee](https://food.allwomenstalk.com/reasons-to-shop-at-aldi-grocery-stores/)
+- [st patrick's in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
 - [get involved on campus](https://lifestyle.allwomenstalk.com/reasons-to-get-involved-on-campus/)
+- [famous women's colleges](https://teen.allwomenstalk.com/reasons-to-go-to-a-womens-college/)
 - [take tours](https://travel.allwomenstalk.com/reasons-to-take-a-guided-tour/)
 - [i feel guilty spending money on myself](https://money.allwomenstalk.com/good-reasons-you-should-spend-money-on-yourself/)
 - [living in the bay](https://travel.allwomenstalk.com/reasons-why-you-should-move-to-the-bay-area/)
-- [st patrick's in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
-- [famous women's colleges](https://teen.allwomenstalk.com/reasons-to-go-to-a-womens-college/)
 - [why do i want to be an ra](https://money.allwomenstalk.com/reasons-being-a-resident-assistant-might-be-the-best-college-student-job/)
 - [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
 - [why should i go to a liberal arts college](https://teen.allwomenstalk.com/reasons-to-go-to-a-liberal-arts-college/)

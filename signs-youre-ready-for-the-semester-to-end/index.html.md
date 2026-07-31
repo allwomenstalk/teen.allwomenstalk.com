@@ -42,16 +42,16 @@ These are 7 signs you’re ready for the semester to end and to begin your summe
 
 ## Related Posts
 
-- [how to tell if you're getting enough sleep](https://health.allwomenstalk.com/telling-signs-youre-not-getting-enough-sleep/)
-- [fangirl tumblr](https://lifestyle.allwomenstalk.com/signs-you-are-definitely-a-fan-girl/)
 - [how to know if your happy](https://inspiration.allwomenstalk.com/signs-youre-truly-happy/)
-- [how much is too much clothes](https://fashion.allwomenstalk.com/signs-you-have-too-many-clothes/)
-- [signs you're gonna be successful](https://inspiration.allwomenstalk.com/signs-youre-going-to-live-a-successful-life/)
+- [how to tell if you're getting enough sleep](https://health.allwomenstalk.com/telling-signs-youre-not-getting-enough-sleep/)
+- [7 signs of a controlling woman](https://inspiration.allwomenstalk.com/signs-youre-a-confident-women/)
+- [fangirl tumblr](https://lifestyle.allwomenstalk.com/signs-you-are-definitely-a-fan-girl/)
 - [7 signs of a true friend](https://lifestyle.allwomenstalk.com/signs-youre-a-friend-others-are-happy-to-have/)
+- [how much is too much clothes](https://fashion.allwomenstalk.com/signs-you-have-too-many-clothes/)
+- [how often should you replace your makeup](https://makeup.allwomenstalk.com/signs-you-need-a-new-foundation/)
 - [am i alpha female](https://inspiration.allwomenstalk.com/are-you-an-alpha-female-here-are-the-signs/)
 - [ombivert](https://lifestyle.allwomenstalk.com/psychology-101-here-are-the-signs-you-are-an-ambivert/)
-- [7 signs of a controlling woman](https://inspiration.allwomenstalk.com/signs-youre-a-confident-women/)
-- [how often should you replace your makeup](https://makeup.allwomenstalk.com/signs-you-need-a-new-foundation/)
+- [signs you're gonna be successful](https://inspiration.allwomenstalk.com/signs-youre-going-to-live-a-successful-life/)
 - [10 Signs That You Need a Vacation ...](https://travel.allwomenstalk.com/10-signs-that-you-need-a-vacation/)
 - [7 Things I Miss about College ...](https://allwomenstalk.com/7-things-i-miss-about-college/)
 

@@ -42,16 +42,16 @@ The ultimate con of being a mother in high school, is that your youth is gone. Y
 
 ## Related Posts
 
-- [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
-- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
-- [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
-- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
 - [preparing toddler for new baby](https://parenting.allwomenstalk.com/ways-to-prepare-your-toddler-for-a-new-baby/)
+- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
+- [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
+- [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
 - [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
 - [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
 - [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
 - [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
 - [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
+- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
 - [7 Reasons Children do Not Want to Go to School ...](https://parenting.allwomenstalk.com/7-reasons-children-do-not-want-to-go-to-school/)
 - [9 Tips for Real Teen Moms ...](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
 

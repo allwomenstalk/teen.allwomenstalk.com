@@ -42,16 +42,16 @@ I hope this helps in some small way. If you’re ever feeling a bit hopeless, th
 
 ## Related Posts
 
-- [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
-- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
-- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
 - [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
-- [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
 - [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
-- [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
-- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
-- [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
+- [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
 - [men's acc/gft marshalls](https://fashion.allwomenstalk.com/worst-things-to-wear-in-the-workplace/)
+- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
+- [mistakes to avoid in a new relationship](https://love.allwomenstalk.com/mistakes-new-couples-should-avoid-making/)
+- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
+- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
+- [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
+- [if you have to choose between me and her](https://love.allwomenstalk.com/things-your-bf-hopes-youll-never-do/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)
 - [7 Things I Miss about College ...](https://allwomenstalk.com/7-things-i-miss-about-college/)
 

@@ -56,16 +56,16 @@ College is all about trying new things, so if you apply to any one of these majo
 
 ## Related Posts
 
+- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
+- [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
 - [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
+- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
 - [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
+- [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
 - [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
 - [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
-- [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
-- [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
-- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
-- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
-- [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
 - [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
+- [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
 - [7 Things to do after Your High School Graduation ....](https://allwomenstalk.com/7-things-to-do-after-graduation/)
 - [8 Reasons to Go to College ...](https://allwomenstalk.com/8-reasons-to-go-to-college/)
 

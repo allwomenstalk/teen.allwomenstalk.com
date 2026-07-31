@@ -42,16 +42,16 @@ It can hurt to know that your teacher is out of reach, but that's where they hav
 
 ## Related Posts
 
-- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
-- [my immature lover drama](https://lifestyle.allwomenstalk.com/how-to-deal-with-immature-friends-for-drama-free-relationships/)
-- [why do i cry in confrontations](https://inspiration.allwomenstalk.com/how-to-handle-confrontation-without-crying/)
-- [love 911 drama queen](https://inspiration.allwomenstalk.com/ways-to-get-over-your-drama-queen-tendencies-for-good/)
 - [people that annoy you](https://lifestyle.allwomenstalk.com/how-to-establish-social-boundaries-with-people-who-annoy-you/)
+- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
+- [it's not you it's me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
+- [love 911 drama queen](https://inspiration.allwomenstalk.com/ways-to-get-over-your-drama-queen-tendencies-for-good/)
+- [why do i cry in confrontations](https://inspiration.allwomenstalk.com/how-to-handle-confrontation-without-crying/)
+- [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
+- [my immature lover drama](https://lifestyle.allwomenstalk.com/how-to-deal-with-immature-friends-for-drama-free-relationships/)
 - [how to stay away from drama](https://lifestyle.allwomenstalk.com/ways-to-avoid-drama-on-your-social-media-accounts/)
 - [sometimes all you need are your friends](https://teen.allwomenstalk.com/how-do-you-handle-being-left-out-by-friends/)
 - [taking advantage meaning](https://love.allwomenstalk.com/what-should-you-do-if-your-partner-takes-advantage-of-you/)
-- [it's not you it's me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
-- [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
 - [The Absolute Worst Phases of Having a Crush ...](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
 - [Flirt with Your Classroom Crush Using These Hyster...](https://funny.allwomenstalk.com/hysterical-pick-up-lines-that-will-work-in-the-classroom/)
 

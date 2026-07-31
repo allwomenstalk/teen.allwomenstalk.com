@@ -50,16 +50,16 @@ It's easy to overextend yourself in college. Between work, school and friends, i
 
 ## Related Posts
 
-- [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
-- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
 - [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
 - [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
+- [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
 - [best colleges for food allergies](https://teen.allwomenstalk.com/tips-to-deal-with-food-allergies-at-college/)
-- [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
 - [senior year of high school quotes](https://teen.allwomenstalk.com/quotes-to-keep-in-mind-during-senior-year/)
+- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
 - [why are ivy leagues so expensive](https://teen.allwomenstalk.com/benefits-of-an-ivy-league-education/)
-- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
 - [problems in high school](https://teen.allwomenstalk.com/horrible-high-school-problems-you-wont-worry-about-in-college/)
+- [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
+- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 - [9 Useful Tips for the College Student ...](https://allwomenstalk.com/9-useful-tips-for-the-college-student/)
 

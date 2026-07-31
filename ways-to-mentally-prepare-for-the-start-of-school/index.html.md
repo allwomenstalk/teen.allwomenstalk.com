@@ -42,16 +42,16 @@ How do you mentally prepare yourself for school? Let me know what you do in the 
 
 ## Related Posts
 
+- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
+- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
 - [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
 - [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
-- [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
 - [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
-- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
+- [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
+- [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
 - [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
 - [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
-- [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
-- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [8 Ways to Prepare to Go Back to School ...](https://allwomenstalk.com/8-ways-to-prepare-to-go-back-to-school/)
 

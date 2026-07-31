@@ -42,16 +42,16 @@ Understand what teens are trying to say nowadays can be hard, especially if you 
 
 ## Related Posts
 
-- [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
-- [pickup line español](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
-- [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
 - [f1 pickup lines](https://funny.allwomenstalk.com/perfect-guardians-of-the-galaxy-pick-up-lines/)
-- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
-- [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
+- [pickup line español](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
 - [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
+- [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
 - [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
-- [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
+- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
 - [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
+- [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
+- [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
+- [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
 - [8 Things Teenage Boys like to do ...](https://parenting.allwomenstalk.com/8-things-teenage-boys-like-to-do/)
 - [7 Creative Ways to Say I Love You ...](https://allwomenstalk.com/7-simple-ways-to-say-i-love-you/)
 

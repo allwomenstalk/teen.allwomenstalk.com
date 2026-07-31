@@ -42,16 +42,16 @@ High school can seem like a big and unfamiliar place when you first get to exper
 
 ## Related Posts
 
-- [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
-- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
-- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
-- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
-- [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
-- [happiness is not something far away and unattainab...](https://inspiration.allwomenstalk.com/common-beliefs-of-unhappy-people-that-you-should-stay-far-away-from/)
-- [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
-- [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
 - [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
+- [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
 - [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
+- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
+- [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
+- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
+- [happiness is not something far away and unattainab...](https://inspiration.allwomenstalk.com/common-beliefs-of-unhappy-people-that-you-should-stay-far-away-from/)
+- [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
+- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
+- [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
 - [7 Things You Should Never Tell Your Kids ...](https://allwomenstalk.com/7-things-you-should-never-tell-your-kids/)
 - [8 Things to Never Tell Your Parents ...](https://allwomenstalk.com/8-things-to-never-tell-your-parents/)
 

@@ -146,16 +146,16 @@ This article was written in collaboration with editor Sabrina Yates and Lisa Was
 
 ## Related Posts
 
-- [elegant compliments](https://inspiration.allwomenstalk.com/charming-words-to-use-to-make-your-compliments-unique/)
 - [each states nickname](https://travel.allwomenstalk.com/states-and-their-nicknames-well-its-51-if-you-include-the-usa-_/)
-- [jokes of the day](https://funny.allwomenstalk.com/corny-jokes-that-will-make-you-laugh-on-bad-days/)
+- [elegant compliments](https://inspiration.allwomenstalk.com/charming-words-to-use-to-make-your-compliments-unique/)
 - [annoying everyday problems](https://funny.allwomenstalk.com/annoying-problems-only-writers-will-understand/)
+- [people with unusual names](https://lifestyle.allwomenstalk.com/things-only-people-with-unusual-names-understand/)
+- [jokes of the day](https://funny.allwomenstalk.com/corny-jokes-that-will-make-you-laugh-on-bad-days/)
 - [how to pronounce etienne](https://fashion.allwomenstalk.com/tricky-designer-names-and-how-to-correctly-pronounce-them/)
+- [disney one-liners puns](https://funny.allwomenstalk.com/clever-disney-related-pick-up-lines/)
 - [funny websites to go on](https://funny.allwomenstalk.com/funny-websites-that-will-always-get-you-laughing/)
 - [arabic words that don't exist in english](https://lifestyle.allwomenstalk.com/cool-words-in-other-languages-that-dont-exist-in-english/)
 - [ted talk learning language](https://lifestyle.allwomenstalk.com/ted-talks-about-language-and-how-we-speak-that-you-dont-want-to-miss/)
-- [disney one-liners puns](https://funny.allwomenstalk.com/clever-disney-related-pick-up-lines/)
-- [people with unusual names](https://lifestyle.allwomenstalk.com/things-only-people-with-unusual-names-understand/)
 - [7 Tips to Improve Your Writing Skills ...](https://allwomenstalk.com/7-tips-to-improve-your-writing-skills/)
 - [7 Ways to Become a Better Writer ...](https://allwomenstalk.com/7-ways-to-become-a-better-writer/)
 

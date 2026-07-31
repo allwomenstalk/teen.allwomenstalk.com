@@ -42,16 +42,16 @@ You should be so proud about getting into college! The battle is won, but the wa
 
 ## Related Posts
 
-- [how to attract boys in school](https://teen.allwomenstalk.com/heres-how-to-become-popular-in-school/)
-- [first choice college](https://teen.allwomenstalk.com/what-to-do-when-your-first-choice-college-turns-you-down/)
-- [scared of life after college](https://teen.allwomenstalk.com/why-you-should-stop-worrying-about-what-youll-do-after-college/)
-- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
 - [mean girls high school reunion](https://teen.allwomenstalk.com/things-i-learned-at-my-high-school-reunion/)
+- [how many years of school](https://lifestyle.allwomenstalk.com/how-many-years-of-school-should-you-actually-take/)
+- [important things to remember](https://lifestyle.allwomenstalk.com/graduation-comes-with-expectations-what-to-remember-as-your-accept-your-diploma/)
+- [first choice college](https://teen.allwomenstalk.com/what-to-do-when-your-first-choice-college-turns-you-down/)
+- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
 - [when you graduate college](https://lifestyle.allwomenstalk.com/things-you-should-know-about-life-the-first-year-after-graduating-college/)
 - [outfit for graduation party](https://fashion.allwomenstalk.com/from-your-graduation-party-to-your-graduation-outfit-tips-all-seniors-should-see/)
+- [how to attract boys in school](https://teen.allwomenstalk.com/heres-how-to-become-popular-in-school/)
 - [lonely in college](https://lifestyle.allwomenstalk.com/is-college-life-lonely-invaluable-cures-you-wont-learn-in-class/)
-- [important things to remember](https://lifestyle.allwomenstalk.com/graduation-comes-with-expectations-what-to-remember-as-your-accept-your-diploma/)
-- [how many years of school](https://lifestyle.allwomenstalk.com/how-many-years-of-school-should-you-actually-take/)
+- [scared of life after college](https://teen.allwomenstalk.com/why-you-should-stop-worrying-about-what-youll-do-after-college/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 - [7 Important Things to Consider when Choosing a Ban...](https://money.allwomenstalk.com/thing-to-consider-when-choosing-a-bank/)
 

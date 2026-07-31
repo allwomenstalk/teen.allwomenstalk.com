@@ -42,16 +42,16 @@ What are your college move-in tips? Let me know in the comments!
 
 ## Related Posts
 
-- [7 Useful Pieces of Information about College to Ke...](https://teen.allwomenstalk.com/useful-pieces-of-information-about-college-to-keep-in-mind/)
-- [7 Tips to Remember if You're a College Freshman .....](https://teen.allwomenstalk.com/tips-to-remember-if-youre-a-college-freshman/)
-- [Cultivate a Gift for Making Friends in College and...](https://teen.allwomenstalk.com/ways-to-make-friends-in-college-and-beyond/)
-- [color le stylo silver couture](https://books.allwomenstalk.com/ways-to-make-the-most-of-your-creative-writing-course/)
-- [7 Ways to Make the Most of Junior Year ...](https://teen.allwomenstalk.com/ways-to-make-the-most-of-junior-year/)
-- [Are You Prepared to Overcome These Obstacles after...](https://lifestyle.allwomenstalk.com/things-to-overcome-after-graduation/)
-- [7 Steps to Making This a Great Semester in College...](https://teen.allwomenstalk.com/steps-to-making-this-a-great-semester-in-college/)
-- [7 Tips for Succeeding in an AP Science Class ...](https://teen.allwomenstalk.com/tips-for-succeeding-in-an-ap-science-class/)
-- [The Key to Making the Most of Freshman Year ...](https://teen.allwomenstalk.com/ways-to-make-the-most-of-freshman-year/)
 - [7 money-saving hacks to do before you buy a car](https://money.allwomenstalk.com/money-saving-hacks-every-college-freshman-should-know/)
+- [The Key to Making the Most of Freshman Year ...](https://teen.allwomenstalk.com/ways-to-make-the-most-of-freshman-year/)
+- [7 Tips for Succeeding in an AP Science Class ...](https://teen.allwomenstalk.com/tips-for-succeeding-in-an-ap-science-class/)
+- [7 Steps to Making This a Great Semester in College...](https://teen.allwomenstalk.com/steps-to-making-this-a-great-semester-in-college/)
+- [7 Tips to Remember if You're a College Freshman .....](https://teen.allwomenstalk.com/tips-to-remember-if-youre-a-college-freshman/)
+- [color le stylo silver couture](https://books.allwomenstalk.com/ways-to-make-the-most-of-your-creative-writing-course/)
+- [Cultivate a Gift for Making Friends in College and...](https://teen.allwomenstalk.com/ways-to-make-friends-in-college-and-beyond/)
+- [Are You Prepared to Overcome These Obstacles after...](https://lifestyle.allwomenstalk.com/things-to-overcome-after-graduation/)
+- [7 Ways to Make the Most of Junior Year ...](https://teen.allwomenstalk.com/ways-to-make-the-most-of-junior-year/)
+- [7 Useful Pieces of Information about College to Ke...](https://teen.allwomenstalk.com/useful-pieces-of-information-about-college-to-keep-in-mind/)
 - [7 Tips for Moving with Kids ...](https://parenting.allwomenstalk.com/tips-for-moving-with-kids/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 

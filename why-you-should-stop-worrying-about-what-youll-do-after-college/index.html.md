@@ -44,16 +44,16 @@ What did you worry about the most before graduating college?
 
 ## Related Posts
 
-- [first choice college](https://teen.allwomenstalk.com/what-to-do-when-your-first-choice-college-turns-you-down/)
-- [eurail student discounts](https://teen.allwomenstalk.com/best-discounts-and-freebies-you-get-with-your-student-id/)
-- [how to balance love and studies](https://love.allwomenstalk.com/heres-how-to-balance-dating-and-studying-when-in-college/)
-- [when you graduate college](https://lifestyle.allwomenstalk.com/things-you-should-know-about-life-the-first-year-after-graduating-college/)
-- [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
-- [how many years of school](https://lifestyle.allwomenstalk.com/how-many-years-of-school-should-you-actually-take/)
 - [college jitters](https://teen.allwomenstalk.com/nervous-about-going-to-college-heres-how-to-confront-your-anxieties/)
+- [first choice college](https://teen.allwomenstalk.com/what-to-do-when-your-first-choice-college-turns-you-down/)
+- [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
+- [when you graduate college](https://lifestyle.allwomenstalk.com/things-you-should-know-about-life-the-first-year-after-graduating-college/)
 - [mean girls high school reunion](https://teen.allwomenstalk.com/things-i-learned-at-my-high-school-reunion/)
+- [how many years of school](https://lifestyle.allwomenstalk.com/how-many-years-of-school-should-you-actually-take/)
+- [eurail student discounts](https://teen.allwomenstalk.com/best-discounts-and-freebies-you-get-with-your-student-id/)
 - [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
 - [professor dpz](https://teen.allwomenstalk.com/tips-to-get-to-know-your-college-professor/)
+- [how to balance love and studies](https://love.allwomenstalk.com/heres-how-to-balance-dating-and-studying-when-in-college/)
 - [7 Reasons Why Life after University Isn't so Bad ....](https://lifestyle.allwomenstalk.com/reasons-why-life-after-university-isnt-so-bad/)
 - [7 Reasons to Go Back to College ...](https://lifestyle.allwomenstalk.com/reasons-to-go-back-to-college/)
 

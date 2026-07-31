@@ -42,16 +42,16 @@ You are about to start a new chapter in your life and as much as it is exciting,
 
 ## Related Posts
 
-- [Win an Interview with Us with Your Best #BacktoSch...](https://lifestyle.allwomenstalk.com/win-an-interview-with-your-best-backtoschool-tip/)
-- [7 Super Savvy Ways to Make Money in College ...](https://money.allwomenstalk.com/make-money-in-college-the-easy-way/)
-- [How to Survive Your First Week of College ...](https://teen.allwomenstalk.com/how-to-survive-your-first-week-of-college/)
-- [The Essential 7️⃣ Strategies for Those Who Want to...](https://teen.allwomenstalk.com/use-these-strategies-to-be-a-more-successful-student/)
 - [7 Secrets to Acing College for Students Who Want t...](https://teen.allwomenstalk.com/the-secrets-behind-getting-good-grades-in-college/)
 - [7 Things You Don't Realize You'll Miss Once You Gr...](https://lifestyle.allwomenstalk.com/things-youll-miss-about-college-once-its-all-over/)
+- [How to Survive Your First Week of College ...](https://teen.allwomenstalk.com/how-to-survive-your-first-week-of-college/)
+- [Here Are the Best Jobs for College Students to Loo...](https://money.allwomenstalk.com/here-are-the-best-jobs-for-college-students/)
+- [Win an Interview with Us with Your Best #BacktoSch...](https://lifestyle.allwomenstalk.com/win-an-interview-with-your-best-backtoschool-tip/)
+- [7 Issues 🤔 You Should Always Discuss with Your Pa...](https://teen.allwomenstalk.com/issues-to-discuss-with-your-parents-before-leaving-for-college/)
+- [7 Super Savvy Ways to Make Money in College ...](https://money.allwomenstalk.com/make-money-in-college-the-easy-way/)
+- [The Essential 7️⃣ Strategies for Those Who Want to...](https://teen.allwomenstalk.com/use-these-strategies-to-be-a-more-successful-student/)
 - [Life Changing Finance Tips All Freshmen Must Know ...](https://money.allwomenstalk.com/the-best-finance-tips-for-freshmen/)
 - [What You Need to Consider 🤔 Your First Semester i...](https://teen.allwomenstalk.com/most-important-things-to-keep-in-mind-your-first-semester-in-college/)
-- [7 Issues 🤔 You Should Always Discuss with Your Pa...](https://teen.allwomenstalk.com/issues-to-discuss-with-your-parents-before-leaving-for-college/)
-- [Here Are the Best Jobs for College Students to Loo...](https://money.allwomenstalk.com/here-are-the-best-jobs-for-college-students/)
 - [10 Tips and Tricks Every Modern Girl Should Master...](https://lifestyle.allwomenstalk.com/tips-and-tricks-every-modern-girl-should-master/)
 - [10 Things Every Woman Should Know How to do ...](https://allwomenstalk.com/10-things-every-woman-should-know-how-to-do/)
 

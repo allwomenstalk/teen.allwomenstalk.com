@@ -42,16 +42,16 @@ High school is a place that becomes like a second home after four years. It’s 
 
 ## Related Posts
 
-- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
 - [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
-- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
-- [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
-- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
-- [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
 - [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
-- [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
-- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
 - [what do you get after graduating college](https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/)
+- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
+- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
+- [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
+- [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
+- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
+- [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
+- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
 - [7 Shopping Mistakes ...](https://lifestyle.allwomenstalk.com/7-shopping-mistakes/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)
 

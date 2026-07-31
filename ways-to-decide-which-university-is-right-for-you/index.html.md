@@ -42,15 +42,15 @@ So there you have it! Hopefully I was able to help shed some light on how to hel
 
 ## Related Posts
 
-- [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
-- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
-- [majors for indecisive students](https://teen.allwomenstalk.com/reliable-majors-to-pursue-when-youre-unsure-of-what-you-want-to-do-after-college/)
-- [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
+- [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
 - [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
 - [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
-- [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
-- [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
 - [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
+- [majors for indecisive students](https://teen.allwomenstalk.com/reliable-majors-to-pursue-when-youre-unsure-of-what-you-want-to-do-after-college/)
+- [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
+- [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
+- [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
+- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
 - [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
 - [10 Ways to Choose a College ...](https://allwomenstalk.com/10-ways-to-choose-a-college/)
 - [8 Tips on Deciding if the Job is for You ...](https://allwomenstalk.com/8-tips-on-deciding-if-the-job-is-for-you/)

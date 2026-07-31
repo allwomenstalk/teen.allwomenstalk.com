@@ -47,16 +47,16 @@ _wikihow.com_
 
 ## Related Posts
 
-- [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
-- [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
-- [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
-- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
-- [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
 - [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
 - [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
-- [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
+- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
 - [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
 - [majors for indecisive students](https://teen.allwomenstalk.com/reliable-majors-to-pursue-when-youre-unsure-of-what-you-want-to-do-after-college/)
+- [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
+- [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
+- [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
+- [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
+- [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
 - [7 Ways to Beat the 'First Day of School' Blues ...](https://parenting.allwomenstalk.com/7-ways-to-beat-the-first-day-of-school-blues/)
 - [7 Tips Needed for Those Going Back to School ...](https://allwomenstalk.com/7-tips-needed-for-those-going-back-to-school/)
 

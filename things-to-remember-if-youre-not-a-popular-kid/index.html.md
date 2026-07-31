@@ -58,16 +58,16 @@ Don't beat yourself up because you don't have tons of friends. What matters is h
 
 ## Related Posts
 
-- [what is the colour of kindness](https://lifestyle.allwomenstalk.com/what-does-your-favorite-color-say-about-you/)
 - [how to read people](https://lifestyle.allwomenstalk.com/how-to-read-people/)
 - [types of vices and virtues](https://lifestyle.allwomenstalk.com/the-deadly-vices-and-how-to-overcome-them-with-7-virtues/)
-- [post grad life](https://lifestyle.allwomenstalk.com/the-downside-to-life-as-a-post-grad/)
-- [always yourself](https://inspiration.allwomenstalk.com/the-real-reasons-why-you-should-always-be-yourself/)
 - [exercise habits](https://fitness.allwomenstalk.com/habits-of-highly-effective-exercisers/)
-- [THESE Are the Things Your 20-Something Self Wants ...](https://teen.allwomenstalk.com/this-is-what-your-year-old-self-wants-to-tell-your-teen-self/)
 - [khloe kardashian bigger the hoop](https://inspiration.allwomenstalk.com/afraid-of-missing-out-dont-be/)
 - [reasons why you are amazing](https://love.allwomenstalk.com/reasons-youre-more-desirable-than-you-think/)
 - [37aa shoe size in us](https://inspiration.allwomenstalk.com/making-the-most-of-being-different/)
+- [what is the colour of kindness](https://lifestyle.allwomenstalk.com/what-does-your-favorite-color-say-about-you/)
+- [THESE Are the Things Your 20-Something Self Wants ...](https://teen.allwomenstalk.com/this-is-what-your-year-old-self-wants-to-tell-your-teen-self/)
+- [post grad life](https://lifestyle.allwomenstalk.com/the-downside-to-life-as-a-post-grad/)
+- [always yourself](https://inspiration.allwomenstalk.com/the-real-reasons-why-you-should-always-be-yourself/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 - [7 Reasons to Be Glad You're Not Famous ...](https://lifestyle.allwomenstalk.com/reasons-to-be-glad-youre-not-famous/)
 

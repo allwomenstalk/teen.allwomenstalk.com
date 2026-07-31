@@ -42,16 +42,16 @@ Keep your head up, buttercup! College is a great time to learn new things, make 
 
 ## Related Posts
 
-- [How to Survive Your First Week of College ...](https://teen.allwomenstalk.com/how-to-survive-your-first-week-of-college/)
 - [7 Super Savvy Ways to Make Money in College ...](https://money.allwomenstalk.com/make-money-in-college-the-easy-way/)
-- [The Essential 7️⃣ Strategies for Those Who Want to...](https://teen.allwomenstalk.com/use-these-strategies-to-be-a-more-successful-student/)
-- [Here Are the Best Jobs for College Students to Loo...](https://money.allwomenstalk.com/here-are-the-best-jobs-for-college-students/)
-- [7 Issues 🤔 You Should Always Discuss with Your Pa...](https://teen.allwomenstalk.com/issues-to-discuss-with-your-parents-before-leaving-for-college/)
-- [What You Need to Consider 🤔 Your First Semester i...](https://teen.allwomenstalk.com/most-important-things-to-keep-in-mind-your-first-semester-in-college/)
 - [Life Changing Finance Tips All Freshmen Must Know ...](https://money.allwomenstalk.com/the-best-finance-tips-for-freshmen/)
-- [high school regrets](https://teen.allwomenstalk.com/how-to-survive-high-school-without-regrets/)
-- [Win an Interview with Us with Your Best #BacktoSch...](https://lifestyle.allwomenstalk.com/win-an-interview-with-your-best-backtoschool-tip/)
+- [What You Need to Consider 🤔 Your First Semester i...](https://teen.allwomenstalk.com/most-important-things-to-keep-in-mind-your-first-semester-in-college/)
+- [7 Issues 🤔 You Should Always Discuss with Your Pa...](https://teen.allwomenstalk.com/issues-to-discuss-with-your-parents-before-leaving-for-college/)
+- [How to Survive Your First Week of College ...](https://teen.allwomenstalk.com/how-to-survive-your-first-week-of-college/)
+- [The Essential 7️⃣ Strategies for Those Who Want to...](https://teen.allwomenstalk.com/use-these-strategies-to-be-a-more-successful-student/)
 - [7 Things You Don't Realize You'll Miss Once You Gr...](https://lifestyle.allwomenstalk.com/things-youll-miss-about-college-once-its-all-over/)
+- [high school regrets](https://teen.allwomenstalk.com/how-to-survive-high-school-without-regrets/)
+- [Here Are the Best Jobs for College Students to Loo...](https://money.allwomenstalk.com/here-are-the-best-jobs-for-college-students/)
+- [Win an Interview with Us with Your Best #BacktoSch...](https://lifestyle.allwomenstalk.com/win-an-interview-with-your-best-backtoschool-tip/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 

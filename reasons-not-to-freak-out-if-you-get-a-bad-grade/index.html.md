@@ -42,16 +42,16 @@ One bad grade isn't the end of the world, and can be improved. But if you consis
 
 ## Related Posts
 
-- [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
-- [never try to be like someone else](https://inspiration.allwomenstalk.com/reasons-to-avoid-trying-to-be-someone-else/)
-- [things that are meant to be broken](https://inspiration.allwomenstalk.com/reasons-why-its-okay-to-be-broken/)
 - [why do you deserve me](https://lifestyle.allwomenstalk.com/reasons-you-deserve-and-need-me-time/)
+- [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
 - [funny answer to why are you single](https://funny.allwomenstalk.com/funny-comebacks-to-the-why-are-you-still-single-question/)
 - [guy rushing into relationship](https://love.allwomenstalk.com/reasons-why-you-shouldnt-rush-into-a-relationship/)
-- [excuses to get out of plans with friends](https://funny.allwomenstalk.com/excuses-to-use-the-next-time-you-cancel-plans/)
-- [should i give this guy a chance](https://love.allwomenstalk.com/reasons-not-to-give-him-a-chance/)
-- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
 - [how to get into a relationship in college](https://love.allwomenstalk.com/reasons-to-hold-out-on-a-relationship-in-college/)
+- [should i give this guy a chance](https://love.allwomenstalk.com/reasons-not-to-give-him-a-chance/)
+- [never try to be like someone else](https://inspiration.allwomenstalk.com/reasons-to-avoid-trying-to-be-someone-else/)
+- [excuses to get out of plans with friends](https://funny.allwomenstalk.com/excuses-to-use-the-next-time-you-cancel-plans/)
+- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
+- [things that are meant to be broken](https://inspiration.allwomenstalk.com/reasons-why-its-okay-to-be-broken/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 - [8 Reasons Not to Focus on Imperfections ...](https://allwomenstalk.com/8-reasons-not-to-focus-on-imperfections/)
 

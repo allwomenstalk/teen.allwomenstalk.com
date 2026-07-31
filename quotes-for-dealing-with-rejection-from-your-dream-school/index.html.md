@@ -56,16 +56,16 @@ I am currently in the throes of college application season, so I know how stress
 
 ## Related Posts
 
-- [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
-- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
-- [the right opinion](https://inspiration.allwomenstalk.com/quotes-about-not-letting-others-opinions-bother-you/)
+- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
+- [unmarried woman quotes funny](https://funny.allwomenstalk.com/funny-quotes-for-all-the-single-ladies/)
+- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
 - [christmas together quotes](https://love.allwomenstalk.com/quotes-about-christmas-love-and-cheer/)
 - [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
-- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
-- [unmarried woman quotes funny](https://funny.allwomenstalk.com/funny-quotes-for-all-the-single-ladies/)
+- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
 - [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
-- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
 - [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
+- [the right opinion](https://inspiration.allwomenstalk.com/quotes-about-not-letting-others-opinions-bother-you/)
+- [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 - [7 Tips on Finding Motivation to Go to College ...](https://allwomenstalk.com/7-tips-on-finding-motivation-to-go-to-college/)
 

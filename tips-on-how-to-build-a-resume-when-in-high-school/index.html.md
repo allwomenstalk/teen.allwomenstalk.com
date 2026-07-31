@@ -44,16 +44,16 @@ It’s not that hard to create an impressive resume even if you are still in sch
 
 ## Related Posts
 
-- [Get Some Help with Narrowing down Your College Lis...](https://teen.allwomenstalk.com/helpful-tips-for-narrowing-down-your-college-list/)
-- [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
-- [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
+- [7 Things You Wish You Knew about Money in College ...](https://money.allwomenstalk.com/things-you-wish-you-knew-about-money-in-college/)
 - [Thought-provoking Points to Consider if You're Thi...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
 - [Are You Prepared to Get Your Master's Degree? ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
-- [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
-- [7 Things You Wish You Knew about Money in College ...](https://money.allwomenstalk.com/things-you-wish-you-knew-about-money-in-college/)
 - [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
 - [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
+- [Get Some Help with Narrowing down Your College Lis...](https://teen.allwomenstalk.com/helpful-tips-for-narrowing-down-your-college-list/)
 - ["appreciate your time"](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
+- [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
+- [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
+- [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
 - [7 Tips on Applying for a Job ...](https://parenting.allwomenstalk.com/7-tips-on-applying-for-a-job/)
 - [7 Tips on How to Write a Job-Winning CV ...](https://money.allwomenstalk.com/tips-on-how-to-write-a-job-winning-cv/)
 

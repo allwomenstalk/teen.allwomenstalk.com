@@ -56,16 +56,16 @@ High school is a rough time for a lot of people. There is a lot of hiding and a 
 
 ## Related Posts
 
-- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
-- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
-- [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
 - [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
-- [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
-- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
+- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
 - [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
-- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
+- [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
 - [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
 - [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
+- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
+- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
+- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
+- [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
 - [8 Reasons to Go Back to School ...](https://allwomenstalk.com/8-reasons-to-go-back-to-school/)
 - [7 Signs You Are Popular in School ...](https://allwomenstalk.com/7-signs-you-are-popular-in-school/)
 

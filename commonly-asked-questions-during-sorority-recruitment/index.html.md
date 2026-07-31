@@ -50,16 +50,16 @@ These are the questions that I get asked very frequently. I hope they help clear
 
 ## Related Posts
 
-- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
-- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
-- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
-- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
+- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
 - [morton high school teachers](https://teen.allwomenstalk.com/types-of-teachers-you-will-have-in-high-school-and-how-to-deal-with-them/)
-- [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
 - [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
+- [balancing school and work](https://teen.allwomenstalk.com/tips-for-balancing-work-and-school/)
+- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
+- [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
 - [fun things to do with besties](https://teen.allwomenstalk.com/things-to-do-with-your-best-friend-the-day-before-you-leave-for-college/)
 - [what to do as a senior in high school](https://teen.allwomenstalk.com/useful-tips-for-when-you-are-a-senior-in-high-school/)
-- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
+- [second semester high school](https://teen.allwomenstalk.com/things-only-second-semester-senior-can-understand/)
+- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
 - [9 Topics to Discuss with Your Daughter ...](https://parenting.allwomenstalk.com/topics-to-discuss-with-your-daughter/)
 - [10 Most Frequent Questions about Periods - Answers...](https://allwomenstalk.com/10-most-frequent-questions-about-periods-answers-for-teens/)
 

@@ -44,16 +44,16 @@ There are a lot of very efficient ways to study for the exams. I just mentioned 
 
 ## Related Posts
 
-- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
-- [good health habits for students](https://teen.allwomenstalk.com/healthy-habits-to-start-in-high-school/)
 - [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
-- [9 things in the world](https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/)
-- [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
-- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
 - [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
+- [9 things in the world](https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/)
+- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
+- [what has my school taught me essay](https://teen.allwomenstalk.com/important-lessons-high-school-taught-me/)
 - [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
-- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
 - [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
+- [pros and cons of a community college](https://teen.allwomenstalk.com/pros-and-cons-of-community-college/)
+- [good health habits for students](https://teen.allwomenstalk.com/healthy-habits-to-start-in-high-school/)
+- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
 - [15 Tips for Passing Exams Successfully ...](https://allwomenstalk.com/15-tips-for-passing-exams-successfully/)
 - [10 Top Tips on Getting Ready for Exams ...](https://allwomenstalk.com/10-top-tips-on-getting-ready-for-exams/)
 

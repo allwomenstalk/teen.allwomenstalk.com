@@ -119,14 +119,14 @@ What's your favorite gift for the grad in your life? What gifts do you want for 
 
 ## Related Posts
 
-- [6 Gift Ideas Perfect Enough for Any Occasion ...](https://lifestyle.allwomenstalk.com/gift-ideas-for-any-occasion/)
 - [edible gifts](https://lifestyle.allwomenstalk.com/edible-gifts/)
 - [Fab Gift Ideas for the Mom ‍ Who's Not so Vanilla ...](https://lifestyle.allwomenstalk.com/fab-gift-ideas-for-the-mom-whos-not-so-vanilla/)
-- [6 Gifts for Your Boyfriend That Mean Something Spe...](https://love.allwomenstalk.com/gifts-for-your-boyfriend/)
 - [36 Best Christmas Gifts for Fitness for Women ...](https://fitene.com/best-christmas-gifts-for-fitness-for-women/)
-- [5 Unique Gift Ideas for 18th Birthdays ...](https://gifts.allwomenstalk.com/unique-gift-ideas-for-18th-birthdays/)
 - [The Absolute Best Gifts You'll Find for Mother's D...](https://lifestyle.allwomenstalk.com/the-absolute-best-gifts-youll-find-for-mothers-day/)
 - [25 Best Amazon Gifts for Father's Day ...](https://lifestyle.allwomenstalk.com/best-amazon-gifts-for-your-man-on-fathers-day/)
+- [6 Gift Ideas Perfect Enough for Any Occasion ...](https://lifestyle.allwomenstalk.com/gift-ideas-for-any-occasion/)
+- [6 Gifts for Your Boyfriend That Mean Something Spe...](https://love.allwomenstalk.com/gifts-for-your-boyfriend/)
+- [5 Unique Gift Ideas for 18th Birthdays ...](https://gifts.allwomenstalk.com/unique-gift-ideas-for-18th-birthdays/)
 - [creative anniversary gifts](https://love.allwomenstalk.com/creative-anniversary-gifts/)
 - [paris riche stylo smoky blue spark](https://lifestyle.allwomenstalk.com/items-to-make-your-holiday-parties-fabulous/)
 - [Mother's Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)

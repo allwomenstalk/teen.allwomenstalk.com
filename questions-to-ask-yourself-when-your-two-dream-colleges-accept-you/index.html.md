@@ -42,15 +42,15 @@ No matter which college you attend, you'll be taking a major step forward in you
 
 ## Related Posts
 
-- [Avoid the Freshman 15 - Here's How to Stay Healthy...](https://health.allwomenstalk.com/avoid-the-freshman-heres-how-to-stay-healthy-as-a-college-kid/)
+- [School's Almost out! Don't Make These Post-Grad Mo...](https://money.allwomenstalk.com/schools-almost-out-dont-make-these-post-grad-money-mistakes/)
 - [Money Lessons You Learn when in College ...](https://money.allwomenstalk.com/money-lessons-you-learn-when-in-college/)
+- [How to Have Fun in College without Spending a Dime...](https://money.allwomenstalk.com/how-to-have-fun-in-college-without-spending-a-dime/)
+- [Heading to College ? Here's How to Make the Most o...](https://teen.allwomenstalk.com/heres-how-to-make-the-most-of-your-last-summer-before-college/)
+- [Avoid the Freshman 15 - Here's How to Stay Healthy...](https://health.allwomenstalk.com/avoid-the-freshman-heres-how-to-stay-healthy-as-a-college-kid/)
 - [while analyzing sonia's features, you noticed that...](https://teen.allwomenstalk.com/never-fail-a-class-again-tips-for-getting-your-teacher-to-like-you/)
 - [shhh secrets reviews](https://teen.allwomenstalk.com/shhh-no-one-ever-tells-you-these-secrets-about-college/)
-- [7 Life Lessons That College Won't Teach You ...](https://inspiration.allwomenstalk.com/life-lessons-that-college-wont-teach-you/)
-- [Heading to College ? Here's How to Make the Most o...](https://teen.allwomenstalk.com/heres-how-to-make-the-most-of-your-last-summer-before-college/)
-- [How to Have Fun in College without Spending a Dime...](https://money.allwomenstalk.com/how-to-have-fun-in-college-without-spending-a-dime/)
-- [School's Almost out! Don't Make These Post-Grad Mo...](https://money.allwomenstalk.com/schools-almost-out-dont-make-these-post-grad-money-mistakes/)
 - [This is How You Can Afford College All on Your Own...](https://money.allwomenstalk.com/this-is-how-you-can-afford-college-all-on-your-own/)
+- [7 Life Lessons That College Won't Teach You ...](https://inspiration.allwomenstalk.com/life-lessons-that-college-wont-teach-you/)
 - [sufficient skills](https://teen.allwomenstalk.com/self-sufficient-skills-thatll-help-you-when-you-reach-college/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [7 Questions to Ask Yourself before Your First Time...](https://love.allwomenstalk.com/7-questions-to-ask-yourself-before-your-first-time/)

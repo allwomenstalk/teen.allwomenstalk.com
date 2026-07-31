@@ -42,16 +42,16 @@ Anxiety is never fun to deal with, but you're strong enough to handle it. There 
 
 ## Related Posts
 
-- [7 Distractions We Consider Bad That Can Actually B...](https://lifestyle.allwomenstalk.com/distractions-we-consider-bad-that-can-actually-be-healthy/)
-- [Here Are the 7 Must Haves for when You're Feeling ...](https://health.allwomenstalk.com/here-are-the-must-haves-for-when-youre-feeling-depressed/)
-- [How Can You Cultivate Mental Toughness?](https://inspiration.allwomenstalk.com/how-can-you-cultivate-mental-toughness/)
-- [7 Ways to Keep Your Concentration While Studying ....](https://teen.allwomenstalk.com/ways-to-keep-your-concentration-while-studying/)
 - [7 Easy Ways to Manage Your Seemingly Unmanageable ...](https://health.allwomenstalk.com/easy-ways-to-manage-your-seemingly-unmanageable-stress/)
-- [7 Ways You're Being Too Hard on Yourself and How t...](https://inspiration.allwomenstalk.com/ways-youre-being-too-hard-on-yourself-and-how-to-stop/)
-- [What Can You do for Emotional Healing?](https://mindfulness.allwomenstalk.com/what-can-you-do-for-emotional-healing/)
 - [Feeling Stressed? These Exercises Will Make Your A...](https://fitness.allwomenstalk.com/feeling-stressed-these-exercises-will-make-your-anxiety-disappear/)
 - [7 Things You Need to do to De-stress at the Airpor...](https://travel.allwomenstalk.com/things-you-need-to-do-to-de-stress-at-the-airport/)
+- [Here Are the 7 Must Haves for when You're Feeling ...](https://health.allwomenstalk.com/here-are-the-must-haves-for-when-youre-feeling-depressed/)
+- [7 Ways to Keep Your Concentration While Studying ....](https://teen.allwomenstalk.com/ways-to-keep-your-concentration-while-studying/)
+- [7 Ways You're Being Too Hard on Yourself and How t...](https://inspiration.allwomenstalk.com/ways-youre-being-too-hard-on-yourself-and-how-to-stop/)
+- [What Can You do for Emotional Healing?](https://mindfulness.allwomenstalk.com/what-can-you-do-for-emotional-healing/)
+- [How Can You Cultivate Mental Toughness?](https://inspiration.allwomenstalk.com/how-can-you-cultivate-mental-toughness/)
 - [boxing for stress relief](https://fitness.allwomenstalk.com/boxing-can-reduce-stress-heres-what-you-need-to-start-boxing/)
+- [7 Distractions We Consider Bad That Can Actually B...](https://lifestyle.allwomenstalk.com/distractions-we-consider-bad-that-can-actually-be-healthy/)
 - [7 Ways to Beat the 'First Day of School' Blues ...](https://parenting.allwomenstalk.com/7-ways-to-beat-the-first-day-of-school-blues/)
 - [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 

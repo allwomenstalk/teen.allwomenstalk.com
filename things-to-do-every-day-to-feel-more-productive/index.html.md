@@ -22,16 +22,16 @@ Thank you for watching!
 
 ## Related Posts
 
-- [8 Awesome Ways to Strengthen Your Heart for a Long...](https://health.allwomenstalk.com/awesome-ways-to-strengthen-your-heart-for-a-longer-life/)
-- [how to wake up happier](https://inspiration.allwomenstalk.com/ways-to-wake-up-happier-than-you-did-yesterday/)
-- [Things Everyone 🤗 Can do to Feel More Productive ...](https://inspiration.allwomenstalk.com/things-everyone-can-do-to-feel-more-productive/)
-- [5 Self Upgrades That Will Help You Be More Product...](https://inspiration.allwomenstalk.com/self-upgrades-that-will-help-you-be-more-productive/)
 - [how to break the habit of being lazy](https://inspiration.allwomenstalk.com/important-habits-to-help-you-stop-being-so-damn-lazy/)
-- [enrich personal care](https://inspiration.allwomenstalk.com/old-fashioned-self-care-activities-that-will-enrich-your-modern-life/)
-- [10 Notes to Self That Will Make You Happier and St...](https://inspiration.allwomenstalk.com/notes-to-self-that-will-make-you-happier-and-stronger/)
-- [Awesome Morning Self Care Routine for a Better Day...](https://health.allwomenstalk.com/awesome-morning-self-care-routine-for-a-better-day/)
+- [how to wake up happier](https://inspiration.allwomenstalk.com/ways-to-wake-up-happier-than-you-did-yesterday/)
+- [5 Self Upgrades That Will Help You Be More Product...](https://inspiration.allwomenstalk.com/self-upgrades-that-will-help-you-be-more-productive/)
 - [The Tricks to Making Yourself Happier ...](https://inspiration.allwomenstalk.com/the-tricks-to-making-yourself-happier/)
+- [Awesome Morning Self Care Routine for a Better Day...](https://health.allwomenstalk.com/awesome-morning-self-care-routine-for-a-better-day/)
+- [10 Notes to Self That Will Make You Happier and St...](https://inspiration.allwomenstalk.com/notes-to-self-that-will-make-you-happier-and-stronger/)
 - [Inspirational Ways to Attract Friends ...](https://lifestyle.allwomenstalk.com/inspirational-ways-to-attract-friends/)
+- [8 Awesome Ways to Strengthen Your Heart for a Long...](https://health.allwomenstalk.com/awesome-ways-to-strengthen-your-heart-for-a-longer-life/)
+- [Things Everyone 🤗 Can do to Feel More Productive ...](https://inspiration.allwomenstalk.com/things-everyone-can-do-to-feel-more-productive/)
+- [enrich personal care](https://inspiration.allwomenstalk.com/old-fashioned-self-care-activities-that-will-enrich-your-modern-life/)
 - [10 Things You Should do Every Day ...](https://allwomenstalk.com/10-things-you-should-do-every-day/)
 - [10 Ways to Make Yourself Feel Happier Every Day .....](https://allwomenstalk.com/10-ways-to-make-yourself-feel-happier-every-day/)
 

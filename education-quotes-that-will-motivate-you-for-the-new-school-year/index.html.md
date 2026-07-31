@@ -56,16 +56,16 @@ Being able to receive an education is a blessing, but it does not always seem li
 
 ## Related Posts
 
-- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
-- [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
 - [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
-- [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
-- [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
-- [how to get to ivy league](https://teen.allwomenstalk.com/tips-on-how-to-get-into-an-ivy-league-school/)
-- [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
-- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
 - [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
 - [infographic topics for college students](https://teen.allwomenstalk.com/incredibly-useful-infographic-for-students/)
+- [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
+- [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
+- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
+- [how to get to ivy league](https://teen.allwomenstalk.com/tips-on-how-to-get-into-an-ivy-league-school/)
+- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
+- [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
+- [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [7 Best Blogs to Motivate You ...](https://allwomenstalk.com/best-blogs-to-motivate-you/)
 

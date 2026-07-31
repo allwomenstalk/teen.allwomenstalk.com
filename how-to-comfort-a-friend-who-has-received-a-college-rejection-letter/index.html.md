@@ -33,15 +33,15 @@ People can feel a lot of shame about being rejected from their dream college, an
 ## Related Posts
 
 - [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
+- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
 - [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
+- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
+- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
 - [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
 - [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
-- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
-- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
-- [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
 - [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
+- [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
 - [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
-- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
 - [How to Help a Family Member Suffering from Depress...](https://health.allwomenstalk.com/tips-on-how-to-deal-with-a-depressed-family-member/)
 - [Let These Quotes Help You Cope with Rejection ...](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 

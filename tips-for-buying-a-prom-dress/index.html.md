@@ -36,16 +36,16 @@ Footwear can sometimes be an afterthought in the dress buying process, but it is
 
 ## Related Posts
 
-- [7 tips to choosing your wedding dress](https://wedding.allwomenstalk.com/tips-on-choosing-the-perfect-wedding-dress/)
-- [kendall k beach](https://wedding.allwomenstalk.com/5-kendall-k-outfits-for-your-engagement-shoot/)
-- [wedding gowns 2011](https://wedding.allwomenstalk.com/hot-dresses-for-every-spring-bridesmaid/)
-- [etsy beach wedding dress](https://wedding.allwomenstalk.com/7-wonderful-wedding-dresses-from-etsy/)
 - [lovely bridal](https://wedding.allwomenstalk.com/lovely-bridal-gowns-under-800-00/)
-- [bhldn bow dress](https://wedding.allwomenstalk.com/new-bridal-gowns-from-bhldn/)
 - [Mother Of The Bride Dress Trends For The Upcoming ...](https://allwomenstalk.com/mother-of-the-bride-dress-trends/)
-- [The Most Fashionable plus Size Dresses for Women Y...](https://allwomenstalk.com/fashionable-plus-size-dresses-for-women/)
 - [non traditional wedding outfit](https://wedding.allwomenstalk.com/5-brides-who-know-how-to-rock-a-non-traditional-wedding-dress/)
+- [7 tips to choosing your wedding dress](https://wedding.allwomenstalk.com/tips-on-choosing-the-perfect-wedding-dress/)
+- [The Most Fashionable plus Size Dresses for Women Y...](https://allwomenstalk.com/fashionable-plus-size-dresses-for-women/)
+- [kendall k beach](https://wedding.allwomenstalk.com/5-kendall-k-outfits-for-your-engagement-shoot/)
+- [etsy beach wedding dress](https://wedding.allwomenstalk.com/7-wonderful-wedding-dresses-from-etsy/)
 - [6 Dresses Perfect for the Spring Season ...](https://fashion.allwomenstalk.com/dresses-perfect-for-the-spring-season/)
+- [wedding gowns 2011](https://wedding.allwomenstalk.com/hot-dresses-for-every-spring-bridesmaid/)
+- [bhldn bow dress](https://wedding.allwomenstalk.com/new-bridal-gowns-from-bhldn/)
 - [Dress to Impress - Tips for Choosing the Perfect O...](https://fashion.allwomenstalk.com/dress-to-impress-tips-for-choosing-the-perfect-outfit-for-a-special-event/)
 - [Prom Dress Shopping 101 : Finding the Perfect Dres...](https://teen.allwomenstalk.com/heres-how-to-pick-the-perfect-prom-dress-for-your-body-shape/)
 

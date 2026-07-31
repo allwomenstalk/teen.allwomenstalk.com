@@ -42,16 +42,16 @@ However upset you are, try to turn this disappointment to your advantage. You ne
 
 ## Related Posts
 
-- [mean girls high school reunion](https://teen.allwomenstalk.com/things-i-learned-at-my-high-school-reunion/)
 - [professor dpz](https://teen.allwomenstalk.com/tips-to-get-to-know-your-college-professor/)
-- [eurail student discounts](https://teen.allwomenstalk.com/best-discounts-and-freebies-you-get-with-your-student-id/)
 - [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
+- [eurail student discounts](https://teen.allwomenstalk.com/best-discounts-and-freebies-you-get-with-your-student-id/)
+- [college jitters](https://teen.allwomenstalk.com/nervous-about-going-to-college-heres-how-to-confront-your-anxieties/)
+- [mean girls high school reunion](https://teen.allwomenstalk.com/things-i-learned-at-my-high-school-reunion/)
+- [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
 - [how to balance love and studies](https://love.allwomenstalk.com/heres-how-to-balance-dating-and-studying-when-in-college/)
+- [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
 - [things to do the day before school](https://teen.allwomenstalk.com/ways-to-mentally-prepare-for-the-start-of-school/)
 - [when you graduate college](https://lifestyle.allwomenstalk.com/things-you-should-know-about-life-the-first-year-after-graduating-college/)
-- [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
-- [college jitters](https://teen.allwomenstalk.com/nervous-about-going-to-college-heres-how-to-confront-your-anxieties/)
-- [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
 - [What do You do when Your Public School Can't Teach...](https://allwomenstalk.com/what-do-you-do-when-your-public-school-cant-teach-your-child/)
 - [7 Reasons Some do Not Go to College ...](https://allwomenstalk.com/7-reasons-some-do-not-go-to-college/)
 

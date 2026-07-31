@@ -42,16 +42,16 @@ Don't be shy about celebrating your college acceptance, it's a huge deal! You sh
 
 ## Related Posts
 
-- [how to decide between 2 colleges](https://teen.allwomenstalk.com/decisions-decisions-how-to-choose-between-your-top-two-colleges/)
 - [senior year of high school quotes](https://teen.allwomenstalk.com/quotes-to-keep-in-mind-during-senior-year/)
 - [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
-- [outfit for graduation party](https://fashion.allwomenstalk.com/from-your-graduation-party-to-your-graduation-outfit-tips-all-seniors-should-see/)
-- [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
-- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
-- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
-- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
 - [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
 - [perfect date gif](https://funny.allwomenstalk.com/gifs-that-describe-what-dating-is-like-in-college/)
+- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
+- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
+- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
+- [how to decide between 2 colleges](https://teen.allwomenstalk.com/decisions-decisions-how-to-choose-between-your-top-two-colleges/)
+- [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
+- [outfit for graduation party](https://fashion.allwomenstalk.com/from-your-graduation-party-to-your-graduation-outfit-tips-all-seniors-should-see/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [7 Things to do after Your High School Graduation ....](https://allwomenstalk.com/7-things-to-do-after-graduation/)
 
