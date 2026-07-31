@@ -3,7 +3,7 @@ title: "9 Fun Activities to do with Your Guy Friends ..."
 description: "Laser Tag; Poker Night; Soccer; Movie Night; Truth or Dare; More ..."
 url: "https://teen.allwomenstalk.com/fun-activities-to-do-with-your-guy-friends/"
 category: "teen"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 9 Fun Activities to do with Your Guy Friends ...
@@ -50,16 +50,16 @@ I don’t mean to assume that a girl-guy relationship is automatically awkward, 
 
 ## Related Posts
 
-- [games to play at baby shower](https://parenting.allwomenstalk.com/fun-baby-shower-games-that-your-guests-and-you-will-love/)
-- [how old is easter](https://inspiration.allwomenstalk.com/easter-traditions-that-will-never-get-old/)
-- [how to help on earth day](https://lifestyle.allwomenstalk.com/ways-to-get-involved-in-earth-day/)
-- [sports to try](https://fitness.allwomenstalk.com/fun-sports-you-have-to-try/)
 - [prom night activities](https://teen.allwomenstalk.com/fun-and-exciting-alternatives-to-prom/)
-- [apa itu zoo date](https://love.allwomenstalk.com/tips-to-have-a-fun-date-at-the-zoo/)
-- [bucket list top](https://travel.allwomenstalk.com/amazing-adventurous-bucket-list-ideas/)
-- [day after prom ideas](https://teen.allwomenstalk.com/fun-after-prom-ideas-to-finish-off-the-night/)
+- [games to play at baby shower](https://parenting.allwomenstalk.com/fun-baby-shower-games-that-your-guests-and-you-will-love/)
 - [fun things to do with significant other](https://love.allwomenstalk.com/fun-things-to-do-with-your-significant-other/)
+- [bucket list top](https://travel.allwomenstalk.com/amazing-adventurous-bucket-list-ideas/)
+- [sports to try](https://fitness.allwomenstalk.com/fun-sports-you-have-to-try/)
+- [apa itu zoo date](https://love.allwomenstalk.com/tips-to-have-a-fun-date-at-the-zoo/)
+- [how to help on earth day](https://lifestyle.allwomenstalk.com/ways-to-get-involved-in-earth-day/)
+- [how old is easter](https://inspiration.allwomenstalk.com/easter-traditions-that-will-never-get-old/)
 - [games for long car rides](https://travel.allwomenstalk.com/games-you-can-play-on-long-car-rides/)
+- [day after prom ideas](https://teen.allwomenstalk.com/fun-after-prom-ideas-to-finish-off-the-night/)
 - [5 Fun Dates Your Guy Will Love ...](https://love.allwomenstalk.com/fun-dates-your-guy-will-love/)
 - [10 Cool Things to do on a Date ...](https://allwomenstalk.com/10-cool-things-to-do-on-a-date/)
 
