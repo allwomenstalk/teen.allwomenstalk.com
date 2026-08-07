@@ -1,57 +1,73 @@
 ---
-title: "Everything You Need to Avoid on Your College Essays ..."
+title: "What Not to Do on a College Essay: 7 Crucial Mistakes to Avoid"
 description: "Boasting; Self-pitying; Simple Mistakes; Rushing; Lying; More ..."
 url: "https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/"
 category: "teen"
-last_updated: "2026-08-03"
+last_updated: "2026-08-07"
 ---
 
-# Everything You Need to Avoid on Your College Essays ...
+# What Not to Do on a College Essay: 7 Crucial Mistakes to Avoid
 
-There are probably more things to avoid when writing a college essay than there are things to actually do! But no matter how confusing the process is, writing your college essay is a huge hurdle you must get over during the college application process. If you are willing to work hard to be accepted into your top-pick university, then you should keep in mind these things to avoid when writing a college essay.
+There are probably more things to avoid when writing a college essay than there are things to actually do! But no matter how confusing the admissions process feels, writing a compelling personal statement for your application is a major hurdle every student must cross. If you are aiming for acceptance at your dream university, understanding **what not to do when writing a college essay** and **what not to talk about in college essays** is essential. Avoiding key pitfalls can make your authentic voice shine through on platform portals like the [Common Application](https://www.commonapp.org/). Keep these crucial mistakes in mind as you draft and refine your application.
 
 ## 1. Boasting
 
-A boastful essay is a big turn off to college admissions officers. The point of your essay is to make you stand out as a more likable, friendly candidate than the rest. Thus, boasting is one of the most important things to avoid when writing a college essay because if you sound arrogant, you won’t seem likable and will have decreased chances of acceptance.
+A boastful essay is a huge turnoff to admissions committees. The goal of your personal statement is to stand out as a thoughtful, self-aware, and likable applicant. Bragging about your accomplishments instead of reflecting on your personal growth makes you seem arrogant rather than capable. To avoid sounding self-centered, focus on sharing meaningful experiences, challenges overcome, and what you learned along the way. If you are wondering **what topics to avoid in college essays**, overly humblebraggy narratives should be at the top of your list. Remember, admissions officers want to see your genuine character, which connects back to avoiding excessive [self-pitying](#2) as well.
 
 ## 2. Self-pitying
 
-Self-pitying is just as unattractive as boasting when it comes to your college essay. Students are sometimes encouraged to write about a traumatic or tragic event that has affected them personally. While such a topic does ensure a more personal, humble essay, it also opens the door for self-pity. Make sure you can distance yourself from the event before you write it, that way you don’t gush emotion and self-pity, which are two very unattractive features in an essay.
+Self-pity is just as counterproductive as boasting when writing for a college panel. Applicants are often encouraged to discuss obstacles, hardship, or personal struggles to demonstrate resilience. While these subjects can create a powerful narrative, they can easily slip into a sob story if not handled carefully. Before writing about a sensitive topic, ensure you have enough emotional distance to write with perspective and maturity rather than raw venting. Frame your story around growth, action, and insight rather than seeking sympathy.
 
 ## 3. Simple Mistakes
 
-Simple mistakes that may be sprinkled throughout your essay are a common plague for college essays. These are things that you might not notice in the essay while editing it yourself- “to” versus “too”, ending a sentence with prepositions such as “to” and “for” or starting a sentence with “And”. In every day writing, these mistakes aren’t such a big deal, but they communicate laziness to colleges. To avoid these mistakes, have several adults read your essay and go over the grammar with you before you send it in.
+Typos, grammatical blunders, and formatting errors scattered throughout your text communicate carelessness to admissions evaluators. Common slipups include confusing word choice (such as "to" versus "too"), ending sentences with awkward prepositions, or overusing informal sentence starters. In everyday texting or informal drafting, these errors are minor, but on a college application, they signal a lack of effort. To catch hidden errors, utilize reliable reference tools like the [Purdue Online Writing Lab (OWL)](https://owl.purdue.edu/) and ask multiple trusted advisors or teachers to proofread your work carefully before submission.
+
+Here is a quick breakdown of structural focus areas when proofreading your college essay:
+
+| Focus Area | Common Mistake | Quick Fix |
+| --- | --- | --- |
+| Tone | Arrogant or overly informal language | Aim for professional yet personal |
+| Grammar | Homophone confusion (to/too, your/you're) | Proofread aloud and use style guides |
+| Pacing | Rushing through editing in one night | Start weeks ahead of deadlines |
 
 ## 4. Rushing
 
-Each year, thousands of students are guilty of this self-punishing crime. If you have procrastinated all throughout high school, things may have turned out fine, but that doesn’t mean you can procrastinate on your college essay. You should start your essay several weeks before the due date, providing yourself ample time to edit and polish.
+Every admissions cycle, thousands of students commit the mistake of leaving their personal essays until the absolute last minute. While procrastination might have worked for routine high school assignments, rushing a college essay guarantees a weaker, less polished result. Giving yourself several weeks before deadlines provides the time needed to brainstorm, outline, rewrite, and step away for fresh perspective. Proper planning ensures you won't fall into the trap of [simple grammar mistakes](#3) or last-minute panic.
 
 ## 5. Lying
 
-You may be tempted to lie, or simply exaggerate, in your college essay. But in the case of the college essay, honesty truly is the best policy. The essay is designed so that you can express yourself and allow colleges the opportunity to get to know the real you- facts and figures aside. Lying will only hurt your character when eventually the truth catches up with you.
+You might be tempted to exaggerate your achievements or invent dramatic scenarios to make your essay stand out. If you have ever wondered, **can you lie on college essays**, the short answer is absolutely not. Honesty is critical. Admissions committees verify details, and fabrications easily betray themselves in interview settings or counselor recommendations. A true, modest story told with genuine reflection is far more compelling than an exaggerated tale. Focus on your real experiences and authentic development.
 
 ## 6. Trying Too Hard
 
-In a college essay, you might write “trying too hard” as “endeavoring too arduously”. While “endeavor” and “arduous” are two beautiful words, they aren’t necessary in that statement. Don’t try too hard to impress your reader with “SAT” words you may not even know the meaning of. You should write your best, but you shouldn’t sit with the thesaurus open next to you as a reference for every word.
+In an effort to sound sophisticated, many writers overload their sentences with pretentious vocabulary. Writing "endeavoring too arduously" instead of "trying too hard" does not make an essay stronger. Instead of consulting a dictionary for every sentence, focus on clear, punchy, and expressive writing. If you need to double-check word definitions, consult a trusted resource like [Merriam-Webster](https://www.merriam-webster.com/), but keep your natural voice front and center without overcomplicating your prose.
+
+Key principles for maintaining natural expression in your essay include:
+
+- Use active voice and precise verbs instead of obscure vocabulary.
+
+- Write in your natural speaking voice elevated for a formal setting.
+
+- Keep sentence structure varied to maintain strong reading rhythm.
 
 ## 7. Informality
 
-That being said, you shouldn’t write an essay as if it’s a letter to your best friend to whom you want to brag about the past four years. You should be mindful of your audience and speak in an elevated manner, avoiding cliches. This also brings you back to not bragging or self-pitying. College admissions officers are not your peers, they are educated adults without a lot of free time, so write with that in mind.
+While avoiding overly complex language is important, your essay should not read like a casual text message or social media post. Strike a balance by respecting your audience—admissions officers are educated professionals reviewing thousands of applications. Avoid slang, text abbreviations, and overused **cliches to avoid in college essays**. For standardized testing and application tracking, resources at the [College Board](https://www.collegeboard.org/) also emphasize clear, formal communication skills. Being mindful of tone ensures you avoid both excessive [boasting](#1) and casual conversational habits.
 
-The college admission process is taxing. If your university of choice requires an essay, matters are made even worse! But don’t overwhelm yourself, because you will come out on top as long as you avoid these essay writing sins. What else do you recommend college applicants avoid in their college essay?
+The college admission process is taxing. If your university of choice requires an essay, matters are made even worse! But don't overwhelm yourself, because you will come out on top as long as you avoid these essay writing sins. What else do you recommend college applicants avoid in their college essay?
 
 ## Related Posts
 
-- [embarrassing school photos](https://lifestyle.allwomenstalk.com/embarrassing-high-school-situations-you-never-mention-in-your-adult-life/)
-- [what not to wear on a date](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-first-date/)
-- [embarrassing songs in public](https://music.allwomenstalk.com/awkward-songs-you-should-never-sing-in-public/)
-- [keep people in your life](https://lifestyle.allwomenstalk.com/people-to-keep-out-of-your-life/)
 - [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
-- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
-- [stage of crushing](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
 - [true friends don't](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
-- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
+- [what not to wear on a date](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-first-date/)
 - [which words should not be used in this essay?](https://teen.allwomenstalk.com/words-to-avoid-using-in-essays-to-get-higher-grades/)
+- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
+- [embarrassing songs in public](https://music.allwomenstalk.com/awkward-songs-you-should-never-sing-in-public/)
+- [embarrassing school photos](https://lifestyle.allwomenstalk.com/embarrassing-high-school-situations-you-never-mention-in-your-adult-life/)
+- [keep people in your life](https://lifestyle.allwomenstalk.com/people-to-keep-out-of-your-life/)
+- [stage of crushing](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
+- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
 - [7 Things to Not Include in a Resume ...](https://money.allwomenstalk.com/things-to-not-include-in-a-resume/)
 - [7 Ways to Ruin Your Resume ...](https://allwomenstalk.com/7-ways-to-ruin-your-resume/)
 
