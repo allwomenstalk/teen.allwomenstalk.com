@@ -50,16 +50,16 @@ In high school, you'll come across a wide variety of individuals. While none of 
 
 ## Related Posts
 
-- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
-- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
 - [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
 - [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
-- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
-- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
-- [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
+- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
 - [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
 - [the real reason your teenager is ignoring you the ...](https://parenting.allwomenstalk.com/things-your-teen-will-do-that-you-should-probably-ignore/)
+- [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
+- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
+- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
 - [what things should friends never do?](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
+- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
 - [Friendship 101: 7 Things to Avoid ...](https://allwomenstalk.com/friendship-101-7-things-to-avoid/)
 - [8 Types of People You Should Avoid ...](https://allwomenstalk.com/8-types-of-people-you-should-avoid/)
 

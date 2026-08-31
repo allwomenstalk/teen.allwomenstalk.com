@@ -42,15 +42,15 @@ For some, senior days are almost over and for others they are years away. Howeve
 
 ## Related Posts
 
-- [finding peace in the chaos](https://inspiration.allwomenstalk.com/ways-to-find-inner-peace-in-a-world-of-chaos/)
-- [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
-- [how to recharge at work](https://money.allwomenstalk.com/amazingly-cheap-ways-to-recharge-after-a-long-day-at-work/)
-- [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
 - [i m not happy](https://lifestyle.allwomenstalk.com/things-to-do-when-you-are-just-not-happy/)
-- [mental health approaches](https://health.allwomenstalk.com/therapeutic-approaches-to-overcoming-mental-illness/)
-- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
+- [finding peace in the chaos](https://inspiration.allwomenstalk.com/ways-to-find-inner-peace-in-a-world-of-chaos/)
+- [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
 - [calming things to do](https://inspiration.allwomenstalk.com/calming-things-to-do-when-everything-else-seems-to-fail/)
+- [how to recharge at work](https://money.allwomenstalk.com/amazingly-cheap-ways-to-recharge-after-a-long-day-at-work/)
+- [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
 - [seems like everything is going wrong](https://inspiration.allwomenstalk.com/ways-to-cope-when-it-seems-like-everything-is-going-wrong/)
+- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
+- [mental health approaches](https://health.allwomenstalk.com/therapeutic-approaches-to-overcoming-mental-illness/)
 - [filming on hiatus](https://movies.allwomenstalk.com/steps-for-coping-when-a-tv-show-is-on-hiatus/)
 - [7 Ways to Beat the 'First Day of School' Blues ...](https://parenting.allwomenstalk.com/7-ways-to-beat-the-first-day-of-school-blues/)
 - [7 Ways to Improve Your Grades in School ...](https://allwomenstalk.com/7-ways-to-improve-your-grades-in-school/)

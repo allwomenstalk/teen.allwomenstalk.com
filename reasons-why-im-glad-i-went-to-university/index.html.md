@@ -42,16 +42,16 @@ So, that's me! I completely understand that university isn't right for everyone,
 
 ## Related Posts
 
-- [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
-- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
 - [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
-- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
-- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
-- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
+- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
 - [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
 - [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
-- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
+- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
 - [what is self expression?](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
+- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
+- [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
+- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
+- [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
 - [The Benefits of Completing a University Degree ...](https://allwomenstalk.com/benefits-of-completing-university-degree/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 

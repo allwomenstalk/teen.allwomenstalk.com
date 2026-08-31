@@ -42,15 +42,15 @@ Your teenage years are a strange time for many reasons, but that’s no reason w
 
 ## Related Posts
 
-- [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
 - [dealer's choice movie](https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/)
+- [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
+- [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
 - [playroom layouts](https://parenting.allwomenstalk.com/epic-playroom-ideas-your-kids-are-going-to-go-crazy-for/)
+- [connect with nature activities](https://fitness.allwomenstalk.com/activities-that-help-you-become-more-connected-to-nature/)
 - [fruit tips](https://food.allwomenstalk.com/fabulous-things-to-do-with-fruit/)
+- [budget party](https://money.allwomenstalk.com/ways-to-host-a-low-budget-party-with-friends/)
 - [host a game night](https://lifestyle.allwomenstalk.com/reasons-to-host-a-game-night-with-your-friends/)
 - [ideas for festival activities](https://diy.allwomenstalk.com/diy-carnival-games-for-a-rockin-party/)
-- [connect with nature activities](https://fitness.allwomenstalk.com/activities-that-help-you-become-more-connected-to-nature/)
-- [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
-- [budget party](https://money.allwomenstalk.com/ways-to-host-a-low-budget-party-with-friends/)
 - [soxy scrabble](https://funny.allwomenstalk.com/funny-creative-games-to-play-with-your-boyfriend/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 - [10 Healthy Ways for Teens to Relax ...](https://health.allwomenstalk.com/healthy-ways-for-teens-to-relax/)

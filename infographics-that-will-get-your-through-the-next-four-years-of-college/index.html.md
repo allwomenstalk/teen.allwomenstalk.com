@@ -184,16 +184,16 @@ What do you love most about being in college? Which of these infographics is goi
 
 ## Related Posts
 
-- [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
-- [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
-- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
-- [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
-- [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
-- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
-- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
-- [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
 - [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
+- [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
+- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
+- [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
+- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
 - [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
+- [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
+- [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
+- [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
+- [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
 - [7 Easy Ways to Make Money in College without Worki...](https://money.allwomenstalk.com/easy-ways-to-make-money-in-college-without-working-your-life-away/)
 - [Things You Need to do before Heading off to Colleg...](https://teen.allwomenstalk.com/things-to-do-before-heading-off-to-college/)
 

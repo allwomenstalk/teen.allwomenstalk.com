@@ -42,16 +42,16 @@ Sophomore year is an important year and should be taken seriously. But at the sa
 
 ## Related Posts
 
-- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
-- [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
-- [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
-- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
-- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
-- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
-- [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
-- [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
 - [easy things to go to school for](https://lifestyle.allwomenstalk.com/alternative-things-to-do-instead-of-going-to-college/)
 - [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
+- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
+- [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
+- [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
+- [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
+- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
+- [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
+- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
+- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [7 Ways to Get Better Grades ...](https://allwomenstalk.com/7-ways-to-get-better-grades/)
 

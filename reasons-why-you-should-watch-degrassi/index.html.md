@@ -42,16 +42,16 @@ As mentioned before, Degrassi is not an award-winning show, but it has a very ad
 
 ## Related Posts
 
-- [i want to become a mermaid](https://funny.allwomenstalk.com/reasons-why-being-a-mermaid-would-be-awesome/)
-- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
-- [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
-- [how many pages are in the fault in our stars](https://books.allwomenstalk.com/reasons-to-read-the-fault-in-our-stars/)
-- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
-- [chloe moretz smoking](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-chloe-moretz/)
-- [listen to us the duo no matter where you are](https://music.allwomenstalk.com/fantastic-reasons-to-listen-to-us-the-duo/)
-- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
 - [where to watch riot](https://movies.allwomenstalk.com/awesome-reasons-to-watch-riot-on-fox/)
+- [listen to us the duo no matter where you are](https://music.allwomenstalk.com/fantastic-reasons-to-listen-to-us-the-duo/)
+- [how many pages are in the fault in our stars](https://books.allwomenstalk.com/reasons-to-read-the-fault-in-our-stars/)
 - [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
+- [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
+- [i want to become a mermaid](https://funny.allwomenstalk.com/reasons-why-being-a-mermaid-would-be-awesome/)
+- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
+- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
+- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
+- [chloe moretz smoking](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-chloe-moretz/)
 - [7 Reasons to Watch CSI ...](https://allwomenstalk.com/7-reasons-to-watch-csi/)
 - [7 Reasons to Watch the Game of Thrones ...](https://movies.allwomenstalk.com/reasons-to-watch-the-game-of-thrones/)
 

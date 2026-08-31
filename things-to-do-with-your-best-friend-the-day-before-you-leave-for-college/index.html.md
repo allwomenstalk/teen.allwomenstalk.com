@@ -50,15 +50,15 @@ There’s a reason why Shakespeare said “parting is such sweet sorrow”. It i
 
 ## Related Posts
 
-- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
-- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
-- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
-- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
 - [advice for high school graduates](https://teen.allwomenstalk.com/pieces-of-advice-for-high-school-graduates/)
-- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
+- [what are you most excited for when thinking about ...](https://teen.allwomenstalk.com/reasons-to-be-excited-for-college/)
 - [reasons why not to go to college](https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/)
-- [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
+- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
 - [what is self expression?](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
+- [i went to university](https://teen.allwomenstalk.com/reasons-why-im-glad-i-went-to-university/)
+- [how to move on from high school friends](https://teen.allwomenstalk.com/ways-to-avoid-drifting-away-from-your-friends-after-high-school/)
+- [staying focused in school](https://teen.allwomenstalk.com/tips-for-staying-focused-in-class/)
+- [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
 - [games for students in college](https://lifestyle.allwomenstalk.com/great-board-games-for-college-students/)
 - [7 Relationship Tips for Your BFF'S ...](https://lifestyle.allwomenstalk.com/7-relationship-tips-for-your-bffs/)
 - [10 Tips when Going from Bestfriend to Boyfriend .....](https://allwomenstalk.com/10-tips-when-going-from-friend-to-boyfriend/)

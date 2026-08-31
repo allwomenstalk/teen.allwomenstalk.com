@@ -42,16 +42,16 @@ There’s nothing wrong with having fun in college, but if you feel like you’r
 
 ## Related Posts
 
-- [hacks for students](https://lifestyle.allwomenstalk.com/life-hacks-that-every-student-should-know/)
-- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
-- [best college girls](https://teen.allwomenstalk.com/college-alternatives-for-girls-not-ready-to-settle-down-on-a-school-yet/)
-- [moving out of dorm hacks](https://lifestyle.allwomenstalk.com/professional-hacks-for-a-super-smooth-college-moving-in-day/)
-- [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
 - [sparknotes com](https://lifestyle.allwomenstalk.com/websites-like-spark-notes-thatll-help-you-in-school/)
-- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
 - [what does freshman 15 mean](https://weightloss.allwomenstalk.com/how-the-freshman-can-sneak-up-on-you/)
-- [easy college girls](https://teen.allwomenstalk.com/easy-ways-to-make-friends-for-fresher-girls-off-to-college/)
+- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
 - [useful websites for college students](https://lifestyle.allwomenstalk.com/websites-that-all-college-students-should-bookmark/)
+- [best college girls](https://teen.allwomenstalk.com/college-alternatives-for-girls-not-ready-to-settle-down-on-a-school-yet/)
+- [hacks for students](https://lifestyle.allwomenstalk.com/life-hacks-that-every-student-should-know/)
+- [easy college girls](https://teen.allwomenstalk.com/easy-ways-to-make-friends-for-fresher-girls-off-to-college/)
+- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
+- [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
+- [moving out of dorm hacks](https://lifestyle.allwomenstalk.com/professional-hacks-for-a-super-smooth-college-moving-in-day/)
 - [7 Tips on Finding Motivation to Go to College ...](https://allwomenstalk.com/7-tips-on-finding-motivation-to-go-to-college/)
 - [8 Great Ways to Stay Motivated in College ...](https://lifestyle.allwomenstalk.com/great-ways-to-stay-motivated-in-college/)
 

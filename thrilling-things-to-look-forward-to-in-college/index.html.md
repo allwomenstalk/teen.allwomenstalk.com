@@ -42,16 +42,16 @@ Thinking about college can be quite frightening. You don’t really know what to
 
 ## Related Posts
 
-- [teachers essay writing](https://teen.allwomenstalk.com/ways-to-write-an-essay-your-english-teacher-will-love-reading/)
-- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
-- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
-- [majors for indecisive students](https://teen.allwomenstalk.com/reliable-majors-to-pursue-when-youre-unsure-of-what-you-want-to-do-after-college/)
 - [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
+- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
+- [how to stand out in your college application](https://teen.allwomenstalk.com/ways-to-make-your-college-application-stand-out/)
 - [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
+- [teachers essay writing](https://teen.allwomenstalk.com/ways-to-write-an-essay-your-english-teacher-will-love-reading/)
 - [should i go away for college](https://teen.allwomenstalk.com/reasons-to-move-away-for-college/)
 - [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
-- [how to stand out in your college application](https://teen.allwomenstalk.com/ways-to-make-your-college-application-stand-out/)
+- [majors for indecisive students](https://teen.allwomenstalk.com/reliable-majors-to-pursue-when-youre-unsure-of-what-you-want-to-do-after-college/)
 - [feel at home special school](https://teen.allwomenstalk.com/very-useful-tips-on-how-to-feel-at-home-at-a-new-school/)
+- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
 - [7 Electives to Take in College ...](https://allwomenstalk.com/7-electives-to-take-in-college/)
 - [7 Great College Classes to Try out ...](https://lifestyle.allwomenstalk.com/great-college-classes-to-try-out/)
 

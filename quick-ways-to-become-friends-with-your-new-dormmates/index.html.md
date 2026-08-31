@@ -51,15 +51,15 @@ No matter what else you do, just be yourself and respect your dormmates. These t
 ## Related Posts
 
 - [learn how to survive alone](https://lifestyle.allwomenstalk.com/important-lessons-you-learn-when-you-live-alone/)
-- [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
-- [living in small apartment](https://lifestyle.allwomenstalk.com/ways-to-make-living-in-a-small-apartment-work/)
-- [moving into his house](https://love.allwomenstalk.com/tips-for-moving-into-your-partners-home/)
-- [declaring noisy neighbours when selling](https://lifestyle.allwomenstalk.com/tips-for-living-next-to-noisy-neighbors/)
 - [holiday accommodation](https://travel.allwomenstalk.com/holiday-accommodation-issues-and-how-to-deal-with-them/)
 - [things to consider when emigrating](https://travel.allwomenstalk.com/things-to-consider-when-emigrating/)
 - [roommate houses for rent](https://money.allwomenstalk.com/practical-ways-to-save-on-rent-without-getting-a-roommate/)
-- [moving in with boyfriend quotes](https://love.allwomenstalk.com/great-reasons-to-wait-before-moving-in-with-your-boyfriend/)
+- [living in small apartment](https://lifestyle.allwomenstalk.com/ways-to-make-living-in-a-small-apartment-work/)
 - [how to buy a mattress pad](https://lifestyle.allwomenstalk.com/things-to-consider-when-buying-a-mattress-pad/)
+- [moving in with boyfriend quotes](https://love.allwomenstalk.com/great-reasons-to-wait-before-moving-in-with-your-boyfriend/)
+- [declaring noisy neighbours when selling](https://lifestyle.allwomenstalk.com/tips-for-living-next-to-noisy-neighbors/)
+- [moving into his house](https://love.allwomenstalk.com/tips-for-moving-into-your-partners-home/)
+- [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
 - [10 Tips to Break the Ice with Someone New ...](https://allwomenstalk.com/10-tips-to-break-the-ice-with-someone-new/)
 - [8 Ways to Make New Friends ...](https://allwomenstalk.com/8-ways-to-make-new-friends/)
 

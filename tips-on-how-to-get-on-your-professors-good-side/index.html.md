@@ -42,15 +42,15 @@ When you've given your professor a name and face to remember, trust me, they'll 
 
 ## Related Posts
 
-- [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
-- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
-- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
 - [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
-- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
-- [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
 - [harassed in public](https://lifestyle.allwomenstalk.com/ways-to-deal-with-public-harassment/)
-- [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
+- [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
+- [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
 - [why do my parents treat my siblings better than me](https://parenting.allwomenstalk.com/tips-if-your-parents-treat-you-and-your-brother-differently/)
+- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
+- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
+- [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
+- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
 - [can't forgive someone](https://lifestyle.allwomenstalk.com/steps-to-take-when-you-cant-forgive-a-friend/)
 - [7 Tips on How to Deal with Your Boss like a Pro .....](https://lifestyle.allwomenstalk.com/tips-on-how-to-deal-with-your-boss-like-a-pro/)
 - [8 Ways to Make People like You ...](https://allwomenstalk.com/8-ways-to-make-people-like-you/)

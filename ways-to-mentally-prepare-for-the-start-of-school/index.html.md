@@ -42,16 +42,16 @@ How do you mentally prepare yourself for school? Let me know what you do in the 
 
 ## Related Posts
 
-- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
-- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
-- [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
-- [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
 - [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
 - [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
 - [bs essay](https://teen.allwomenstalk.com/how-to-bs-an-essay-and-still-get-an-a/)
-- [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
-- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
+- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [how to make the week go by fast](https://teen.allwomenstalk.com/how-to-make-the-school-week-go-by-faster/)
+- [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
+- [select the correct answer. identify the place show...](https://apps.allwomenstalk.com/apps-thatll-make-college-a-total-breeze/)
+- [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
+- [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
+- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
 - [8 Ways to Prepare to Go Back to School ...](https://allwomenstalk.com/8-ways-to-prepare-to-go-back-to-school/)
 

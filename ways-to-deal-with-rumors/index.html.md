@@ -42,15 +42,15 @@ No one appreciates being the victim of a nasty rumor, but you can ensure that no
 
 ## Related Posts
 
-- [unwanted crush](https://love.allwomenstalk.com/tips-on-dealing-with-an-unwanted-crush/)
-- [famous angry tennis player](https://fitness.allwomenstalk.com/ways-to-control-anger-on-the-tennis-court/)
-- [how to reach a compromise](https://love.allwomenstalk.com/steps-to-help-you-reach-a-compromise-with-your-partner/)
-- [how to cope with embarrassing moments](https://lifestyle.allwomenstalk.com/ways-to-recover-from-an-embarrassing-moment-2/)
-- [cheating revenge ideas](https://love.allwomenstalk.com/awesome-ways-to-get-back-at-a-cheater/)
-- [outgoing person](https://inspiration.allwomenstalk.com/easy-ways-to-fake-an-outgoing-personality/)
-- [bashful meaning](https://lifestyle.allwomenstalk.com/ways-to-deal-with-hateful-people/)
-- [7 tricks to make yourself stop texting and driving](https://lifestyle.allwomenstalk.com/ways-to-break-the-texting-and-driving-habit/)
 - [what does it mean when someone mimics you](https://inspiration.allwomenstalk.com/ways-to-deal-when-someone-constantly-imitates-you/)
+- [unwanted crush](https://love.allwomenstalk.com/tips-on-dealing-with-an-unwanted-crush/)
+- [how to cope with embarrassing moments](https://lifestyle.allwomenstalk.com/ways-to-recover-from-an-embarrassing-moment-2/)
+- [7 tricks to make yourself stop texting and driving](https://lifestyle.allwomenstalk.com/ways-to-break-the-texting-and-driving-habit/)
+- [famous angry tennis player](https://fitness.allwomenstalk.com/ways-to-control-anger-on-the-tennis-court/)
+- [outgoing person](https://inspiration.allwomenstalk.com/easy-ways-to-fake-an-outgoing-personality/)
+- [how to reach a compromise](https://love.allwomenstalk.com/steps-to-help-you-reach-a-compromise-with-your-partner/)
+- [bashful meaning](https://lifestyle.allwomenstalk.com/ways-to-deal-with-hateful-people/)
+- [cheating revenge ideas](https://love.allwomenstalk.com/awesome-ways-to-get-back-at-a-cheater/)
 - [how to handle rumors](https://inspiration.allwomenstalk.com/empowering-ways-to-deal-with-rumors/)
 - [7 Ways to Handle an Insult ...](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
 - [7 Ways to Deal with Office Politics ...](https://allwomenstalk.com/7-ways-to-deal-with-office-politics/)

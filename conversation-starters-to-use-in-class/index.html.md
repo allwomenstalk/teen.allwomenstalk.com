@@ -42,16 +42,16 @@ You don't want to spend the entire semester sitting in a corner alone. That's wh
 
 ## Related Posts
 
-- [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
-- [single independent woman](https://inspiration.allwomenstalk.com/independent-women-will-love-these-self-date-ideas/)
-- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
 - [girls guide essay](https://teen.allwomenstalk.com/how-to-pick-an-essay-topic-thatll-get-you-an-a/)
-- [how to find your calling](https://inspiration.allwomenstalk.com/how-to-find-your-calling-in-life/)
-- [gym girl wedgie](https://fitness.allwomenstalk.com/awkward-gym-moments-every-girl-has-endured/)
-- [basic girls fall](https://lifestyle.allwomenstalk.com/fall-things-all-of-us-basic-girls-enjoy/)
-- [boyfriend extra](https://love.allwomenstalk.com/the-lazy-girls-guide-to-getting-a-boyfriend/)
 - [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
+- [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
+- [boyfriend extra](https://love.allwomenstalk.com/the-lazy-girls-guide-to-getting-a-boyfriend/)
+- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
+- [single independent woman](https://inspiration.allwomenstalk.com/independent-women-will-love-these-self-date-ideas/)
+- [basic girls fall](https://lifestyle.allwomenstalk.com/fall-things-all-of-us-basic-girls-enjoy/)
 - [controllinh](https://lifestyle.allwomenstalk.com/things-girls-who-swear-hate-to-hear/)
+- [gym girl wedgie](https://fitness.allwomenstalk.com/awkward-gym-moments-every-girl-has-endured/)
+- [how to find your calling](https://inspiration.allwomenstalk.com/how-to-find-your-calling-in-life/)
 - [21 Ways to Start a Conversation with a Guy You lik...](https://allwomenstalk.com/15-ways-to-start-a-conversation-with-a-guy-you-like/)
 - [7 Tips for Men on Sparking up a Conversation ...](https://allwomenstalk.com/7-tips-for-men-on-sparking-up-a-conversation/)
 

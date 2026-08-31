@@ -56,16 +56,16 @@ What’s your favorite book about being a teen? Currently, my favorite is The Fa
 
 ## Related Posts
 
-- [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
 - [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
-- [jane austen movie adaptations](https://movies.allwomenstalk.com/best-adaptations-of-jane-austen-novels/)
+- [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
+- [best books on ww1](https://books.allwomenstalk.com/most-excellent-novels-set-in-the-first-world-war/)
 - [eco friendly books](https://books.allwomenstalk.com/great-books-about-eco-friendly-living/)
-- [most famous romance novelists](https://books.allwomenstalk.com/of-the-greatest-romance-writers/)
 - [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
-- [paris le smoky shadow conquest](https://parenting.allwomenstalk.com/great-chapter-books-to-read-with-your-children-over-the-summer/)
 - [what's the longest book ever](https://books.allwomenstalk.com/longest-novels-you-will-ever-stumble-upon/)
 - [a classic tale](https://books.allwomenstalk.com/famous-classic-tales-and-the-lessons-they-teach-us/)
-- [best books on ww1](https://books.allwomenstalk.com/most-excellent-novels-set-in-the-first-world-war/)
+- [paris le smoky shadow conquest](https://parenting.allwomenstalk.com/great-chapter-books-to-read-with-your-children-over-the-summer/)
+- [most famous romance novelists](https://books.allwomenstalk.com/of-the-greatest-romance-writers/)
+- [jane austen movie adaptations](https://movies.allwomenstalk.com/best-adaptations-of-jane-austen-novels/)
 - [7 Great Books about Dating ...](https://love.allwomenstalk.com/great-books-about-dating/)
 - [8 Great Book Series for Tweens ...](https://allwomenstalk.com/8-great-book-series-for-tweens/)
 

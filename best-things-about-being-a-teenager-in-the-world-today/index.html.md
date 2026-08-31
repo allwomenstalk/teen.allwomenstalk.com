@@ -60,16 +60,16 @@ Whether you’re just entering your teens, or living out your last years as one,
 
 ## Related Posts
 
-- [give two reasons why yoga instructors should becom...](https://fitness.allwomenstalk.com/benefits-of-becoming-a-certified-yoga-teacher/)
 - [passion is more important than wealth](https://inspiration.allwomenstalk.com/reasons-why-following-your-passion-is-more-important-than-money/)
-- [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
+- [give two reasons why yoga instructors should becom...](https://fitness.allwomenstalk.com/benefits-of-becoming-a-certified-yoga-teacher/)
+- [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
 - [history of taking husband's last name](https://love.allwomenstalk.com/reasons-to-take-your-husbands-last-name/)
-- [ted ed why you should read](https://lifestyle.allwomenstalk.com/reasons-why-you-should-watch-ted-talks-more-often/)
 - [indulge in food](https://diet.allwomenstalk.com/reasons-why-its-ok-to-indulge-now-and-then/)
 - [benefits of the library](https://books.allwomenstalk.com/benefits-of-going-to-your-local-libray/)
-- [reasons to do pilates](https://fitness.allwomenstalk.com/convincing-reasons-to-do-pilates/)
-- [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
+- [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
 - [moving accross country](https://lifestyle.allwomenstalk.com/wonderful-reasons-to-move-across-the-country/)
+- [ted ed why you should read](https://lifestyle.allwomenstalk.com/reasons-why-you-should-watch-ted-talks-more-often/)
+- [reasons to do pilates](https://fitness.allwomenstalk.com/convincing-reasons-to-do-pilates/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)
 - [7 Ways to Enjoy Life More ...](https://allwomenstalk.com/7-ways-to-enjoy-life-more/)
 

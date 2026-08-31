@@ -51,16 +51,16 @@ English teachers read so many essays that it’s a wonder they have any time to 
 
 ## Related Posts
 
-- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
-- [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
-- [feel at home special school](https://teen.allwomenstalk.com/very-useful-tips-on-how-to-feel-at-home-at-a-new-school/)
 - [college companies](https://teen.allwomenstalk.com/great-companies-started-by-college-students/)
-- [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
-- [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
 - [should i go away for college](https://teen.allwomenstalk.com/reasons-to-move-away-for-college/)
-- [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
+- [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
+- [kirkcaldy college](https://teen.allwomenstalk.com/crazy-college-traditions-that-will-make-you-go-hmmm/)
 - [majors for indecisive students](https://teen.allwomenstalk.com/reliable-majors-to-pursue-when-youre-unsure-of-what-you-want-to-do-after-college/)
 - [change my reputation](https://teen.allwomenstalk.com/ways-to-shake-up-your-reputation-in-high-school/)
+- [feel at home special school](https://teen.allwomenstalk.com/very-useful-tips-on-how-to-feel-at-home-at-a-new-school/)
+- [college change](https://inspiration.allwomenstalk.com/ways-you-can-change-the-world-as-a-college-student/)
+- [questions to ask during sorority recruitment](https://teen.allwomenstalk.com/commonly-asked-questions-during-sorority-recruitment/)
+- [finding the right university](https://teen.allwomenstalk.com/ways-to-decide-which-university-is-right-for-you/)
 - [10 Tips on How to Become a Writer ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
 - [7 Tips to Improve Your Writing Skills ...](https://allwomenstalk.com/7-tips-to-improve-your-writing-skills/)
 

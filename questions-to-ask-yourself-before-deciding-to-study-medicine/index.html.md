@@ -54,16 +54,16 @@ One of the most admirable jobs someone can take on is being a doctor, in my opin
 
 ## Related Posts
 
-- [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
 - [perfect date gif](https://funny.allwomenstalk.com/gifs-that-describe-what-dating-is-like-in-college/)
-- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
-- [lonely in college](https://lifestyle.allwomenstalk.com/is-college-life-lonely-invaluable-cures-you-wont-learn-in-class/)
-- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
-- [how to decide between 2 colleges](https://teen.allwomenstalk.com/decisions-decisions-how-to-choose-between-your-top-two-colleges/)
 - [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
-- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
+- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
+- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
+- [how to decide between 2 colleges](https://teen.allwomenstalk.com/decisions-decisions-how-to-choose-between-your-top-two-colleges/)
 - [important things to remember](https://lifestyle.allwomenstalk.com/graduation-comes-with-expectations-what-to-remember-as-your-accept-your-diploma/)
 - [outfit for graduation party](https://fashion.allwomenstalk.com/from-your-graduation-party-to-your-graduation-outfit-tips-all-seniors-should-see/)
+- [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
+- [lonely in college](https://lifestyle.allwomenstalk.com/is-college-life-lonely-invaluable-cures-you-wont-learn-in-class/)
+- [spa colleges in india](https://beauty.allwomenstalk.com/treat-yourself-the-best-spa-treatments-for-college-kids/)
 - [What You Should Know before Getting a Job in Healt...](https://vityle.com/what-you-should-know-before-getting-a-job-in-healthcare/)
 - [10 Questions to Ask Yourself before Starting a Bus...](https://allwomenstalk.com/10-questions-to-ask-yourself-before-starting-a-business/)
 

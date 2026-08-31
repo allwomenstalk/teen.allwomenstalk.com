@@ -42,16 +42,16 @@ Getting to know a professor can be tricky, especially if there are a lot of stud
 
 ## Related Posts
 
-- [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
-- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
-- [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
-- [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
 - [why are freshman hated](https://teen.allwomenstalk.com/everything-i-wish-i-knew-about-high-school-social-life-my-freshman-year/)
+- [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
 - [dating mistakes to avoid](https://love.allwomenstalk.com/dating-mistakes-to-avoid-making-in-college/)
-- [things to do the day before school](https://teen.allwomenstalk.com/ways-to-mentally-prepare-for-the-start-of-school/)
-- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [college surveys for money](https://money.allwomenstalk.com/online-surveys-thatll-help-struggling-college-students-make-money/)
+- [study habits infographic](https://teen.allwomenstalk.com/infographics-that-will-get-your-through-the-next-four-years-of-college/)
 - [life hacks for college students](https://lifestyle.allwomenstalk.com/lifesaving-life-hacks-for-college-students/)
+- [college essentials for girls](https://teen.allwomenstalk.com/essentials-for-successful-college-students/)
+- [things to do the day before school](https://teen.allwomenstalk.com/ways-to-mentally-prepare-for-the-start-of-school/)
+- [get schooled online free](https://lifestyle.allwomenstalk.com/ways-to-get-schooled-online/)
+- [leaving my friends](https://teen.allwomenstalk.com/how-to-survive-when-all-of-your-friends-are-away-at-college/)
 - [7 Tips Every Teacher Should Have ...](https://allwomenstalk.com/7-tips-every-teacher-should-have/)
 - [8 Tips on Approaching Someone You like ...](https://allwomenstalk.com/8-tips-on-approaching-someone-you-like/)
 

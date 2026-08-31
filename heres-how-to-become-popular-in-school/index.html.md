@@ -43,12 +43,12 @@ Popularity isn't the path for everyone, but if it is for you, try these methods 
 ## Related Posts
 
 - [professor dpz](https://teen.allwomenstalk.com/tips-to-get-to-know-your-college-professor/)
-- [when you graduate college](https://lifestyle.allwomenstalk.com/things-you-should-know-about-life-the-first-year-after-graduating-college/)
-- [scared of life after college](https://teen.allwomenstalk.com/why-you-should-stop-worrying-about-what-youll-do-after-college/)
-- [mean girls high school reunion](https://teen.allwomenstalk.com/things-i-learned-at-my-high-school-reunion/)
-- [how many years of school](https://lifestyle.allwomenstalk.com/how-many-years-of-school-should-you-actually-take/)
 - [first choice college](https://teen.allwomenstalk.com/what-to-do-when-your-first-choice-college-turns-you-down/)
 - [eurail student discounts](https://teen.allwomenstalk.com/best-discounts-and-freebies-you-get-with-your-student-id/)
+- [scared of life after college](https://teen.allwomenstalk.com/why-you-should-stop-worrying-about-what-youll-do-after-college/)
+- [how many years of school](https://lifestyle.allwomenstalk.com/how-many-years-of-school-should-you-actually-take/)
+- [mean girls high school reunion](https://teen.allwomenstalk.com/things-i-learned-at-my-high-school-reunion/)
+- [when you graduate college](https://lifestyle.allwomenstalk.com/things-you-should-know-about-life-the-first-year-after-graduating-college/)
 - [college jitters](https://teen.allwomenstalk.com/nervous-about-going-to-college-heres-how-to-confront-your-anxieties/)
 - [how to survive college alone](https://love.allwomenstalk.com/how-to-survive-school-away-from-your-bf/)
 - [how to balance love and studies](https://love.allwomenstalk.com/heres-how-to-balance-dating-and-studying-when-in-college/)

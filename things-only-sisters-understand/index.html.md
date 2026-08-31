@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many things only sisters un
 
 ## Related Posts
 
-- [fun things to do for girls night](https://lifestyle.allwomenstalk.com/things-a-girls-night-out-will-do-for-you/)
-- [7 Things You Shouldn't Be Ashamed of as a Woman .....](https://inspiration.allwomenstalk.com/things-you-shouldnt-be-ashamed-of-as-a-woman/)
-- [food commercial tricks](https://food.allwomenstalk.com/diet-friendly-pizza-tricks-every-girl-should-know/)
-- [skin problems and emotions](https://money.allwomenstalk.com/ways-to-control-your-emotions-when-dealing-with-money-problems/)
-- [girls should be](https://lifestyle.allwomenstalk.com/things-a-girl-should-carry-with-her-at-all-times/)
-- [peace hide](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 - [when women support each other](https://inspiration.allwomenstalk.com/great-ways-women-can-support-each-other/)
-- [raising girls](https://parenting.allwomenstalk.com/things-you-need-to-know-about-raising-girls/)
-- [life lessons song](https://music.allwomenstalk.com/lessons-for-women-from-colbie-caillats-try/)
+- [girls should be](https://lifestyle.allwomenstalk.com/things-a-girl-should-carry-with-her-at-all-times/)
+- [food commercial tricks](https://food.allwomenstalk.com/diet-friendly-pizza-tricks-every-girl-should-know/)
+- [fun things to do for girls night](https://lifestyle.allwomenstalk.com/things-a-girls-night-out-will-do-for-you/)
 - [jobs for females that don't require a degree](https://money.allwomenstalk.com/great-careers-to-pursue-that-wont-keep-you-in-school-forever/)
+- [7 Things You Shouldn't Be Ashamed of as a Woman .....](https://inspiration.allwomenstalk.com/things-you-shouldnt-be-ashamed-of-as-a-woman/)
+- [peace hide](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
+- [skin problems and emotions](https://money.allwomenstalk.com/ways-to-control-your-emotions-when-dealing-with-money-problems/)
+- [life lessons song](https://music.allwomenstalk.com/lessons-for-women-from-colbie-caillats-try/)
+- [raising girls](https://parenting.allwomenstalk.com/things-you-need-to-know-about-raising-girls/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Things Men Don't Tell You ...](https://allwomenstalk.com/7-things-men-dont-tell-you/)
 

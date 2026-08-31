@@ -42,16 +42,16 @@ If you’re lucky enough to have a mom or mother-figure who is actively involved
 
 ## Related Posts
 
-- [pros and cons of wearing your heart on your sleeve](https://love.allwomenstalk.com/why-a-woman-actually-shouldnt-wear-her-heart-on-her-sleeve/)
-- [what is a non selfish reason to have a child](https://parenting.allwomenstalk.com/reasons-its-not-selfish-to-choose-not-to-have-children/)
-- [how to leave the past in the past](https://inspiration.allwomenstalk.com/reasons-the-past-should-stay-in-the-past/)
-- [husband leaving for work](https://love.allwomenstalk.com/perks-of-having-a-husband-who-leaves-town-for-work/)
 - [does age matters in a relationship](https://love.allwomenstalk.com/reasons-an-age-gap-relationship-may-be-right-for-you/)
-- [childhood friends are the best](https://lifestyle.allwomenstalk.com/reasons-why-you-should-never-lose-your-childhood-best-friends/)
 - [why isn't my relationship status showing on my pro...](https://love.allwomenstalk.com/great-reasons-not-to-list-your-relationship-status-on-facebook/)
+- [husband leaving for work](https://love.allwomenstalk.com/perks-of-having-a-husband-who-leaves-town-for-work/)
 - [friend stole my boyfriend](https://love.allwomenstalk.com/why-it-is-seriously-not-cool-to-steal-your-friends-boyfriend/)
-- [no off day](https://inspiration.allwomenstalk.com/having-an-off-day-theres-probably-a-good-reason/)
 - [reasons not to give up on someone you love](https://love.allwomenstalk.com/reasons-not-to-give-up-on-love/)
+- [childhood friends are the best](https://lifestyle.allwomenstalk.com/reasons-why-you-should-never-lose-your-childhood-best-friends/)
+- [what is a non selfish reason to have a child](https://parenting.allwomenstalk.com/reasons-its-not-selfish-to-choose-not-to-have-children/)
+- [pros and cons of wearing your heart on your sleeve](https://love.allwomenstalk.com/why-a-woman-actually-shouldnt-wear-her-heart-on-her-sleeve/)
+- [how to leave the past in the past](https://inspiration.allwomenstalk.com/reasons-the-past-should-stay-in-the-past/)
+- [no off day](https://inspiration.allwomenstalk.com/having-an-off-day-theres-probably-a-good-reason/)
 - [7 Reasons to Respect Your Parents ...](https://allwomenstalk.com/7-reasons-to-respect-your-parents/)
 - [7 Reasons Why Family Should Always Come First ...](https://lifestyle.allwomenstalk.com/reasons-why-family-should-always-come-first/)
 

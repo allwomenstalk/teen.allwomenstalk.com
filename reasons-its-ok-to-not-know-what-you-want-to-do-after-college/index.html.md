@@ -42,16 +42,16 @@ Life is a tricky thing. No one has it entirely figured out, which is part of the
 
 ## Related Posts
 
-- [never go back to what hurt you](https://love.allwomenstalk.com/reasons-why-you-should-never-go-back-to-your-ex-boyfriend/)
-- [is 30 too old to be single](https://love.allwomenstalk.com/reasons-to-stay-single-and-free-until-30/)
-- [no date for prom](https://teen.allwomenstalk.com/reasons-why-you-dont-need-a-date-for-prom/)
-- [why you shouldn't get a dog](https://lifestyle.allwomenstalk.com/valid-reasons-why-youre-not-ready-for-a-dog/)
-- [special occasion fashion](https://fashion.allwomenstalk.com/reasons-not-to-save-items-for-special-occasions/)
-- [don't buy a car](https://money.allwomenstalk.com/reasons-not-to-buy-a-car-that-you-should-consider/)
-- [friends to dating](https://love.allwomenstalk.com/reasons-to-be-friends-before-you-start-dating/)
-- [were going out tonight](https://funny.allwomenstalk.com/reasons-to-go-out-tonight-even-if-its-the-last-thing-you-want-to-do/)
-- [when is it okay to start dating](https://love.allwomenstalk.com/reasons-why-it-is-okay-to-start-dating-later/)
 - [what to do when your teenager shuts you out](https://parenting.allwomenstalk.com/reasons-why-teenagers-shut-you-out/)
+- [never go back to what hurt you](https://love.allwomenstalk.com/reasons-why-you-should-never-go-back-to-your-ex-boyfriend/)
+- [were going out tonight](https://funny.allwomenstalk.com/reasons-to-go-out-tonight-even-if-its-the-last-thing-you-want-to-do/)
+- [no date for prom](https://teen.allwomenstalk.com/reasons-why-you-dont-need-a-date-for-prom/)
+- [special occasion fashion](https://fashion.allwomenstalk.com/reasons-not-to-save-items-for-special-occasions/)
+- [why you shouldn't get a dog](https://lifestyle.allwomenstalk.com/valid-reasons-why-youre-not-ready-for-a-dog/)
+- [don't buy a car](https://money.allwomenstalk.com/reasons-not-to-buy-a-car-that-you-should-consider/)
+- [is 30 too old to be single](https://love.allwomenstalk.com/reasons-to-stay-single-and-free-until-30/)
+- [when is it okay to start dating](https://love.allwomenstalk.com/reasons-why-it-is-okay-to-start-dating-later/)
+- [friends to dating](https://love.allwomenstalk.com/reasons-to-be-friends-before-you-start-dating/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 - [7 Reasons I Love College as an Adult ...](https://allwomenstalk.com/7-reasons-i-love-college-as-an-adult/)
 

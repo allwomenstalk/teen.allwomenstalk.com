@@ -42,16 +42,16 @@ How do you stay organized during the school year?
 
 ## Related Posts
 
-- [7 Life Lessons That College Won't Teach You ...](https://inspiration.allwomenstalk.com/life-lessons-that-college-wont-teach-you/)
-- [while analyzing sonia's features, you noticed that...](https://teen.allwomenstalk.com/never-fail-a-class-again-tips-for-getting-your-teacher-to-like-you/)
-- [How to Have Fun in College without Spending a Dime...](https://money.allwomenstalk.com/how-to-have-fun-in-college-without-spending-a-dime/)
 - [7 Questions to Ask Yourself when Your Two Dream Co...](https://teen.allwomenstalk.com/questions-to-ask-yourself-when-your-two-dream-colleges-accept-you/)
-- [This is How You Can Afford College All on Your Own...](https://money.allwomenstalk.com/this-is-how-you-can-afford-college-all-on-your-own/)
-- [Avoid the Freshman 15 - Here's How to Stay Healthy...](https://health.allwomenstalk.com/avoid-the-freshman-heres-how-to-stay-healthy-as-a-college-kid/)
-- [sufficient skills](https://teen.allwomenstalk.com/self-sufficient-skills-thatll-help-you-when-you-reach-college/)
+- [7 Life Lessons That College Won't Teach You ...](https://inspiration.allwomenstalk.com/life-lessons-that-college-wont-teach-you/)
 - [School's Almost out! Don't Make These Post-Grad Mo...](https://money.allwomenstalk.com/schools-almost-out-dont-make-these-post-grad-money-mistakes/)
 - [shhh secrets reviews](https://teen.allwomenstalk.com/shhh-no-one-ever-tells-you-these-secrets-about-college/)
+- [How to Have Fun in College without Spending a Dime...](https://money.allwomenstalk.com/how-to-have-fun-in-college-without-spending-a-dime/)
+- [This is How You Can Afford College All on Your Own...](https://money.allwomenstalk.com/this-is-how-you-can-afford-college-all-on-your-own/)
+- [while analyzing sonia's features, you noticed that...](https://teen.allwomenstalk.com/never-fail-a-class-again-tips-for-getting-your-teacher-to-like-you/)
+- [Avoid the Freshman 15 - Here's How to Stay Healthy...](https://health.allwomenstalk.com/avoid-the-freshman-heres-how-to-stay-healthy-as-a-college-kid/)
 - [Money Lessons You Learn when in College ...](https://money.allwomenstalk.com/money-lessons-you-learn-when-in-college/)
+- [sufficient skills](https://teen.allwomenstalk.com/self-sufficient-skills-thatll-help-you-when-you-reach-college/)
 - [7 Ways to Organize ...](https://allwomenstalk.com/7-ways-to-organize/)
 - [7 Ways to Improve Your Grades in School ...](https://allwomenstalk.com/7-ways-to-improve-your-grades-in-school/)
 
