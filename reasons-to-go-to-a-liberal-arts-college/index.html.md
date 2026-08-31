@@ -42,16 +42,16 @@ These are some of the reasons why liberal arts colleges are so valued by student
 
 ## Related Posts
 
-- [why 30s are the best years](https://lifestyle.allwomenstalk.com/great-reasons-to-look-forward-to-your-30s/)
-- [i feel guilty spending money on myself](https://money.allwomenstalk.com/good-reasons-you-should-spend-money-on-yourself/)
-- [living in the bay](https://travel.allwomenstalk.com/reasons-why-you-should-move-to-the-bay-area/)
-- [first class flights with beds price](https://travel.allwomenstalk.com/reasons-first-class-flights-cost-so-much/)
-- [reasons to learn chinese](https://lifestyle.allwomenstalk.com/reasons-to-learn-mandarin-chinese/)
-- [violin player images](https://music.allwomenstalk.com/awesome-benefits-of-playing-the-violin/)
-- [famous women's colleges](https://teen.allwomenstalk.com/reasons-to-go-to-a-womens-college/)
-- [take tours](https://travel.allwomenstalk.com/reasons-to-take-a-guided-tour/)
 - [grateful for everything](https://inspiration.allwomenstalk.com/reasons-to-be-grateful-for-everything-in-your-life/)
 - [get involved on campus](https://lifestyle.allwomenstalk.com/reasons-to-get-involved-on-campus/)
+- [violin player images](https://music.allwomenstalk.com/awesome-benefits-of-playing-the-violin/)
+- [reasons to learn chinese](https://lifestyle.allwomenstalk.com/reasons-to-learn-mandarin-chinese/)
+- [take tours](https://travel.allwomenstalk.com/reasons-to-take-a-guided-tour/)
+- [living in the bay](https://travel.allwomenstalk.com/reasons-why-you-should-move-to-the-bay-area/)
+- [first class flights with beds price](https://travel.allwomenstalk.com/reasons-first-class-flights-cost-so-much/)
+- [famous women's colleges](https://teen.allwomenstalk.com/reasons-to-go-to-a-womens-college/)
+- [i feel guilty spending money on myself](https://money.allwomenstalk.com/good-reasons-you-should-spend-money-on-yourself/)
+- [why 30s are the best years](https://lifestyle.allwomenstalk.com/great-reasons-to-look-forward-to-your-30s/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 - [7 Reasons I Love College as an Adult ...](https://allwomenstalk.com/7-reasons-i-love-college-as-an-adult/)
 

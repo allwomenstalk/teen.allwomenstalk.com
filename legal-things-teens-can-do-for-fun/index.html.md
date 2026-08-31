@@ -50,16 +50,16 @@ Finding fun legal things to do as a teenager can seem difficult, but it really i
 
 ## Related Posts
 
-- [pi day poems](https://parenting.allwomenstalk.com/fun-ideas-for-celebrating-national-pi-day/)
-- [i'm not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
-- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
 - [to help the community](https://inspiration.allwomenstalk.com/websites-to-help-you-get-involved-in-your-community/)
-- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
-- [year in new zealand](https://travel.allwomenstalk.com/ways-to-spend-a-year-in-new-zealand/)
 - [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
-- [scored it free stuff](https://money.allwomenstalk.com/awesome-ways-to-score-free-stuff/)
-- [be stuck in traffic](https://travel.allwomenstalk.com/things-to-do-while-stuck-in-traffic/)
+- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
 - [spring vacation ideas for families](https://parenting.allwomenstalk.com/activities-or-mini-vacation-ideas-to-do-with-your-kids-on-spring-break/)
+- [be stuck in traffic](https://travel.allwomenstalk.com/things-to-do-while-stuck-in-traffic/)
+- [pi day poems](https://parenting.allwomenstalk.com/fun-ideas-for-celebrating-national-pi-day/)
+- [scored it free stuff](https://money.allwomenstalk.com/awesome-ways-to-score-free-stuff/)
+- [year in new zealand](https://travel.allwomenstalk.com/ways-to-spend-a-year-in-new-zealand/)
+- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
+- [i'm not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
 - [7 Ways to Celebrate a Teen's Birthday ...](https://parenting.allwomenstalk.com/7-ways-to-celebrate-a-teens-birthday/)
 - [8 Things Teenage Boys like to do ...](https://parenting.allwomenstalk.com/8-things-teenage-boys-like-to-do/)
 

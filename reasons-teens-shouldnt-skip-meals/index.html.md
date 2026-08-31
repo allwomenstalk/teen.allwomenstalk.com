@@ -42,16 +42,16 @@ Overall, skipping meals is bad news. For teens especially, eating all three meal
 
 ## Related Posts
 
+- [how to eat a good breakfast](https://food.allwomenstalk.com/ways-to-make-sure-you-eat-breakfast-every-morning/)
+- [foraging trend](https://food.allwomenstalk.com/tips-for-the-foraging-food-trend/)
 - [slim sandwich](https://food.allwomenstalk.com/easy-tweaks-to-slim-your-sandwich/)
-- [too tired to cook](https://food.allwomenstalk.com/too-tired-to-cook-heres-how-to-eat-healthy-when-you-go-out/)
+- [i've been sad trying to get a grip](https://diet.allwomenstalk.com/ways-to-get-a-grip-on-emotional-eating/)
+- [the seven rules of gut health](https://health.allwomenstalk.com/rules-for-promoting-gut-health/)
 - [low calorie party food](https://food.allwomenstalk.com/low-calorie-party-snacks-for-the-holidays/)
 - [how to eat well in college](https://diet.allwomenstalk.com/ways-to-ensure-you-eat-well-at-college/)
 - [500 calorie meals fast food](https://food.allwomenstalk.com/ways-to-make-lower-calorie-versions-of-fast-food-treats/)
-- [how to eat a good breakfast](https://food.allwomenstalk.com/ways-to-make-sure-you-eat-breakfast-every-morning/)
-- [i've been sad trying to get a grip](https://diet.allwomenstalk.com/ways-to-get-a-grip-on-emotional-eating/)
 - [best pizza delivery in siesta key](https://food.allwomenstalk.com/make-ahead-meals-for-weight-loss/)
-- [the seven rules of gut health](https://health.allwomenstalk.com/rules-for-promoting-gut-health/)
-- [foraging trend](https://food.allwomenstalk.com/tips-for-the-foraging-food-trend/)
+- [too tired to cook](https://food.allwomenstalk.com/too-tired-to-cook-heres-how-to-eat-healthy-when-you-go-out/)
 - [Send Kids Back to School with a Healthy Diet](https://allwomenstalk.com/3-24/)
 - [7 Reasons You Must Eat Breakfast for Your Health ....](https://health.allwomenstalk.com/reasons-you-must-eat-breakfast-for-your-health/)
 

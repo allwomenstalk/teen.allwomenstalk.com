@@ -42,16 +42,16 @@ These are my favorite ways to deal with stress during college. I know many peopl
 
 ## Related Posts
 
-- [mcat success tips](https://teen.allwomenstalk.com/tips-for-studying-for-the-mcat/)
-- [Are You Prepared to Get Your Master's Degree? ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
-- ["appreciate your time"](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
-- [7 Organisation Tricks That'll Make Studying Easy ....](https://teen.allwomenstalk.com/organisation-tricks-thatll-make-studying-easy/)
 - [Thought-provoking Points to Consider if You're Thi...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
+- [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
+- [7 Organisation Tricks That'll Make Studying Easy ....](https://teen.allwomenstalk.com/organisation-tricks-thatll-make-studying-easy/)
+- [Are You Prepared to Get Your Master's Degree? ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
+- [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
 - [7 Things You Wish You Knew about Money in College ...](https://money.allwomenstalk.com/things-you-wish-you-knew-about-money-in-college/)
 - [7 Resume Boosting Student Vacations ...](https://travel.allwomenstalk.com/resume-boosting-student-vacations/)
-- [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
+- ["appreciate your time"](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
+- [mcat success tips](https://teen.allwomenstalk.com/tips-for-studying-for-the-mcat/)
 - [Keep Calm and Grade on: Dealing with Exam Nerves s...](https://teen.allwomenstalk.com/tips-for-dealing-with-exam-nerves-so-you-can-succeed/)
-- [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
 - [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)
 - [7 Foods to Combat Stress ...](https://allwomenstalk.com/7-foods-to-combat-stress/)
 

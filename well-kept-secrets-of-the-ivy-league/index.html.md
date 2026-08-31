@@ -46,16 +46,16 @@ Getting accepted into an Ivy League school can be difficult but if you start pre
 
 ## Related Posts
 
+- [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
 - [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
-- [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
 - ["appreciate your time"](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
 - [Keep Calm and Grade on: Dealing with Exam Nerves s...](https://teen.allwomenstalk.com/tips-for-dealing-with-exam-nerves-so-you-can-succeed/)
 - [7 Things You Wish You Knew about Money in College ...](https://money.allwomenstalk.com/things-you-wish-you-knew-about-money-in-college/)
-- [Are You Prepared to Get Your Master's Degree? ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
-- [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
-- [mcat success tips](https://teen.allwomenstalk.com/tips-for-studying-for-the-mcat/)
-- [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
 - [Thought-provoking Points to Consider if You're Thi...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
+- [mcat success tips](https://teen.allwomenstalk.com/tips-for-studying-for-the-mcat/)
+- [why do freshman have to live on campus](https://teen.allwomenstalk.com/reasons-to-live-on-campus-freshman-year-of-college/)
+- [Are You Prepared to Get Your Master's Degree? ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
+- [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
 - [7 Must-Know Facts ...](https://allwomenstalk.com/7-must-have-facts/)
 - [7 Common College Drunken Alter-Egos ...](https://lifestyle.allwomenstalk.com/common-college-drunken-alter-egos/)
 

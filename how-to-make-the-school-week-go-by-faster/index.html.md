@@ -56,16 +56,16 @@ You can't drop out of school, but you can do little things that will make it muc
 
 ## Related Posts
 
-- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
-- [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
-- [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
-- [why are college students broke](https://money.allwomenstalk.com/every-broke-college-student-needs-to-hear-this-news/)
-- [stress short story](https://lifestyle.allwomenstalk.com/shorty-story-school-stress/)
-- [last minute tweaks](https://teen.allwomenstalk.com/last-minute-tweaks-to-make-to-your-college-application/)
-- [that'll be 8 dollars gif](https://lifestyle.allwomenstalk.com/bad-habits-thatll-make-college-life-miserable/)
-- [travel tips for students](https://travel.allwomenstalk.com/you-have-to-see-these-top-travel-tips-for-college-students/)
 - [college peer pressure](https://teen.allwomenstalk.com/how-to-resist-peer-pressure-in-college/)
+- [last minute tweaks](https://teen.allwomenstalk.com/last-minute-tweaks-to-make-to-your-college-application/)
+- [stress short story](https://lifestyle.allwomenstalk.com/shorty-story-school-stress/)
+- [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
+- [why are college students broke](https://money.allwomenstalk.com/every-broke-college-student-needs-to-hear-this-news/)
+- [that'll be 8 dollars gif](https://lifestyle.allwomenstalk.com/bad-habits-thatll-make-college-life-miserable/)
+- [partying in college](https://lifestyle.allwomenstalk.com/alternatives-to-partying-in-college/)
+- [what to follow on twitter](https://apps.allwomenstalk.com/most-fun-and-useful-twitter-accounts-for-students-to-follow/)
 - [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
+- [travel tips for students](https://travel.allwomenstalk.com/you-have-to-see-these-top-travel-tips-for-college-students/)
 - [6 Ways to Get Kids Excited about Going Back to Sch...](https://lifestyle.allwomenstalk.com/ways-to-get-kids-excited-about-going-back-to-school/)
 - [7 Tips on Handling School Day Mornings ...](https://allwomenstalk.com/7-tips-on-handling-school-day-mornings/)
 

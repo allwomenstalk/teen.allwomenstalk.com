@@ -56,16 +56,16 @@ I am currently in the throes of college application season, so I know how stress
 
 ## Related Posts
 
-- [the right opinion](https://inspiration.allwomenstalk.com/quotes-about-not-letting-others-opinions-bother-you/)
-- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
 - [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
-- [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
-- [christmas together quotes](https://love.allwomenstalk.com/quotes-about-christmas-love-and-cheer/)
-- [unmarried woman quotes funny](https://funny.allwomenstalk.com/funny-quotes-for-all-the-single-ladies/)
-- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
-- [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
-- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
 - [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
+- [unmarried woman quotes funny](https://funny.allwomenstalk.com/funny-quotes-for-all-the-single-ladies/)
+- [christmas together quotes](https://love.allwomenstalk.com/quotes-about-christmas-love-and-cheer/)
+- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
+- [the right opinion](https://inspiration.allwomenstalk.com/quotes-about-not-letting-others-opinions-bother-you/)
+- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
+- [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
+- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
+- [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)
 - [7 Tips on Finding Motivation to Go to College ...](https://allwomenstalk.com/7-tips-on-finding-motivation-to-go-to-college/)
 

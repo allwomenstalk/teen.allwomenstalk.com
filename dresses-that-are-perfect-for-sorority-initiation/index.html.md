@@ -68,16 +68,16 @@ Most sororities have all sisters and future sisters wear white during initiation
 
 ## Related Posts
 
-- [night dress summer](https://fashion.allwomenstalk.com/pretty-night-dresses-for-hot-summer-nights/)
-- [stunning wedding dresses](https://wedding.allwomenstalk.com/stunning-wedding-gowns-that-will-take-your-breath-away/)
-- [kimono lolita dress](https://fashion.allwomenstalk.com/adorable-lolita-dresses/)
 - [she's all that laney outfits](https://movies.allwomenstalk.com/memorable-prom-dresses-in-the-movies/)
+- [stunning wedding dresses](https://wedding.allwomenstalk.com/stunning-wedding-gowns-that-will-take-your-breath-away/)
+- [tracy reese dresses nordstrom](https://fashion.allwomenstalk.com/great-wrap-dresses-you-can-find-at-nordstrom/)
+- [kimono lolita dress](https://fashion.allwomenstalk.com/adorable-lolita-dresses/)
+- [frozen bride](https://wedding.allwomenstalk.com/disneys-frozen-wedding-gown-has-finally-arrived/)
 - [dress from indecent proposal](https://fashion.allwomenstalk.com/captivating-cut-out-dresses-you-can-pick-up-at-nordstrom/)
+- [dress for wide hips](https://wedding.allwomenstalk.com/wedding-dress-styles-that-are-absolutely-beautiful/)
 - [stylish coat dress](https://fashion.allwomenstalk.com/beautiful-coat-dresses-that-will-make-you-feel-like-a-royal/)
 - [popular homecoming dresses](https://teen.allwomenstalk.com/stunning-homecoming-dresses/)
-- [frozen bride](https://wedding.allwomenstalk.com/disneys-frozen-wedding-gown-has-finally-arrived/)
-- [tracy reese dresses nordstrom](https://fashion.allwomenstalk.com/great-wrap-dresses-you-can-find-at-nordstrom/)
-- [dress for wide hips](https://wedding.allwomenstalk.com/wedding-dress-styles-that-are-absolutely-beautiful/)
+- [night dress summer](https://fashion.allwomenstalk.com/pretty-night-dresses-for-hot-summer-nights/)
 - [5 Unique Things for Your Bridesmaids to Carry ...](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
 - [9 Amazing Hairpieces to Wear to Parties ...](https://hair.allwomenstalk.com/amazing-hairpieces-to-wear-to-parties/)
 

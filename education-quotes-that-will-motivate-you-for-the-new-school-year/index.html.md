@@ -56,16 +56,16 @@ Being able to receive an education is a blessing, but it does not always seem li
 
 ## Related Posts
 
-- [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
-- [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
-- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
-- [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
-- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
-- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
-- [infographic topics for college students](https://teen.allwomenstalk.com/incredibly-useful-infographic-for-students/)
-- [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
-- [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
 - [how to get to ivy league](https://teen.allwomenstalk.com/tips-on-how-to-get-into-an-ivy-league-school/)
+- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
+- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
+- [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
+- [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
+- [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
+- [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
+- [infographic topics for college students](https://teen.allwomenstalk.com/incredibly-useful-infographic-for-students/)
+- [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
+- [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [7 Best Blogs to Motivate You ...](https://allwomenstalk.com/best-blogs-to-motivate-you/)
 

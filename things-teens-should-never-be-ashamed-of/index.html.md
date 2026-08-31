@@ -52,16 +52,16 @@ Girls feel so much shame rush at them during adolescence, it’s hard not to be 
 
 ## Related Posts
 
-- [how to think effectively](https://inspiration.allwomenstalk.com/surprising-things-you-never-knew-on-how-to-think-effectively/)
-- [sailor senshi heights](https://inspiration.allwomenstalk.com/lessons-to-learn-from-sailor-moon-that-will-give-you-hope/)
-- [the wealthy barber review](https://money.allwomenstalk.com/lessons-to-memorize-from-the-wealthy-barber-returns/)
-- [lessons from disney](https://movies.allwomenstalk.com/life-lessons-to-learn-from-disney-villians/)
-- [things that frustrate you at work](https://lifestyle.allwomenstalk.com/frustrating-things-that-come-with-a-leadership-position/)
-- [benefit of constructive criticism](https://inspiration.allwomenstalk.com/very-good-reasons-you-should-learn-to-take-constructive-criticism/)
-- [types of development](https://health.allwomenstalk.com/types-of-development-that-affect-you-as-you-grow/)
-- [best gifts for introverts](https://lifestyle.allwomenstalk.com/things-introverts-will-never-tell-you-but-you-need-to-know/)
-- [different types of procrastination](https://lifestyle.allwomenstalk.com/very-common-types-of-procrastination/)
 - [what makes a person indecisive](https://lifestyle.allwomenstalk.com/things-only-majorly-indecisive-individuals-understand/)
+- [lessons from disney](https://movies.allwomenstalk.com/life-lessons-to-learn-from-disney-villians/)
+- [how to think effectively](https://inspiration.allwomenstalk.com/surprising-things-you-never-knew-on-how-to-think-effectively/)
+- [types of development](https://health.allwomenstalk.com/types-of-development-that-affect-you-as-you-grow/)
+- [the wealthy barber review](https://money.allwomenstalk.com/lessons-to-memorize-from-the-wealthy-barber-returns/)
+- [sailor senshi heights](https://inspiration.allwomenstalk.com/lessons-to-learn-from-sailor-moon-that-will-give-you-hope/)
+- [best gifts for introverts](https://lifestyle.allwomenstalk.com/things-introverts-will-never-tell-you-but-you-need-to-know/)
+- [benefit of constructive criticism](https://inspiration.allwomenstalk.com/very-good-reasons-you-should-learn-to-take-constructive-criticism/)
+- [different types of procrastination](https://lifestyle.allwomenstalk.com/very-common-types-of-procrastination/)
+- [things that frustrate you at work](https://lifestyle.allwomenstalk.com/frustrating-things-that-come-with-a-leadership-position/)
 - [7 Reasons Never to Lie to Your Teen ...](https://parenting.allwomenstalk.com/7-reasons-never-to-lie-to-your-teen/)
 - [8 Things Teenager Girls Enjoy Doing ...](https://parenting.allwomenstalk.com/8-things-teenager-girls-enjoy-doing/)
 

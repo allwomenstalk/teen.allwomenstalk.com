@@ -47,16 +47,16 @@ Dealing with peer pressure can be difficult sometimes, but if you stay true to y
 
 ## Related Posts
 
-- [harassed in public](https://lifestyle.allwomenstalk.com/ways-to-deal-with-public-harassment/)
-- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
-- [why do my parents treat my siblings better than me](https://parenting.allwomenstalk.com/tips-if-your-parents-treat-you-and-your-brother-differently/)
-- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
-- [how to write peaceful without family](https://lifestyle.allwomenstalk.com/tips-to-make-peace-with-your-chaotic-family/)
 - [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
-- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
-- [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
-- [can't forgive someone](https://lifestyle.allwomenstalk.com/steps-to-take-when-you-cant-forgive-a-friend/)
 - [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
+- [how to write peaceful without family](https://lifestyle.allwomenstalk.com/tips-to-make-peace-with-your-chaotic-family/)
+- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
+- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
+- [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
+- [why do my parents treat my siblings better than me](https://parenting.allwomenstalk.com/tips-if-your-parents-treat-you-and-your-brother-differently/)
+- [can't forgive someone](https://lifestyle.allwomenstalk.com/steps-to-take-when-you-cant-forgive-a-friend/)
+- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
+- [harassed in public](https://lifestyle.allwomenstalk.com/ways-to-deal-with-public-harassment/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Positive Tips to Avoid Peer Pressure ...](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
 

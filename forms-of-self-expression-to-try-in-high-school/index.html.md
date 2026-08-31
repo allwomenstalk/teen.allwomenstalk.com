@@ -55,15 +55,15 @@ Self-expression is a huge part of living in this world. If we couldn’t use spe
 
 ## Related Posts
 
-- [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
-- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
 - [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
-- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
-- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
-- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
-- [what do you get after graduating college](https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/)
 - [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
+- [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
+- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
+- [what do you get after graduating college](https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/)
 - [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
+- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
+- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
+- [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
 - [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
 - [7 Ways to Show Your Creativity ...](https://allwomenstalk.com/7-ways-to-show-your-creativity/)
 - [7 Ways to Get Better Grades ...](https://allwomenstalk.com/7-ways-to-get-better-grades/)

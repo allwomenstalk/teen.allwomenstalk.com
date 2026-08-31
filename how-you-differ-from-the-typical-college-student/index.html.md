@@ -56,15 +56,15 @@ Do you feel like you're not the typical college student? Did you struggle with t
 
 ## Related Posts
 
-- [Apps That Will Make You More Productive at College...](https://apps.allwomenstalk.com/apps-that-will-make-you-more-productive-at-college/)
-- [what college did lip go to](https://lifestyle.allwomenstalk.com/what-every-college-girl-does-to-procrastinate/)
-- [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
-- [Want to Study 🤓Abroad but Don't Know Where? 🤔 Ch...](https://travel.allwomenstalk.com/want-to-study-abroad-but-dont-know-where/)
-- [How College Prepares You for the Real World in Uni...](https://teen.allwomenstalk.com/how-college-prepares-you-for-the-real-world-in-unimaginable-ways/)
 - [7 Things to do during Winter Break to Prepare for ...](https://teen.allwomenstalk.com/things-to-do-during-winter-break-to-prepare-for-second-semester/)
 - [How to Juggle Work and School without Going Insane...](https://lifestyle.allwomenstalk.com/how-to-juggle-work-and-school-without-going-insane/)
-- [What Should Your College Major and Career Be?](https://money.allwomenstalk.com/what-should-your-college-major-and-career-be/)
+- [Want to Study 🤓Abroad but Don't Know Where? 🤔 Ch...](https://travel.allwomenstalk.com/want-to-study-abroad-but-dont-know-where/)
+- [17 Productive Ways to Procrastinate during Finals ...](https://teen.allwomenstalk.com/productive-ways-to-procrastinate-during-finals-week/)
+- [Apps That Will Make You More Productive at College...](https://apps.allwomenstalk.com/apps-that-will-make-you-more-productive-at-college/)
+- [How College Prepares You for the Real World in Uni...](https://teen.allwomenstalk.com/how-college-prepares-you-for-the-real-world-in-unimaginable-ways/)
 - [riche primped and previous](https://lifestyle.allwomenstalk.com/things-everyone-who-is-leaving-for-college-should-know/)
+- [what college did lip go to](https://lifestyle.allwomenstalk.com/what-every-college-girl-does-to-procrastinate/)
+- [What Should Your College Major and Career Be?](https://money.allwomenstalk.com/what-should-your-college-major-and-career-be/)
 - [Infographics to Help Struggling Students Ace an Im...](https://teen.allwomenstalk.com/infographics-for-students-who-need-to-ace-a-paper/)
 - [10 Healthy Habits to Start in College ...](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [Then and Now: 8 Ways College Life Has Changed Dram...](https://allwomenstalk.com/then-and-now-8-ways-college-life-has-changed-dramatically/)

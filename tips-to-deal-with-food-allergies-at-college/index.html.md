@@ -42,16 +42,16 @@ I’m not a dietician, but I have had plenty of experience in dealing with my fo
 
 ## Related Posts
 
-- [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
-- [problems in high school](https://teen.allwomenstalk.com/horrible-high-school-problems-you-wont-worry-about-in-college/)
+- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
+- [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
 - [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
+- [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
 - [why are ivy leagues so expensive](https://teen.allwomenstalk.com/benefits-of-an-ivy-league-education/)
 - [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
-- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
-- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
-- [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
-- [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
 - [senior year of high school quotes](https://teen.allwomenstalk.com/quotes-to-keep-in-mind-during-senior-year/)
+- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
+- [problems in high school](https://teen.allwomenstalk.com/horrible-high-school-problems-you-wont-worry-about-in-college/)
+- [kinds of students](https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/)
 - [10 Pros and Cons for Going Gluten Free ...](https://health.allwomenstalk.com/pros-and-cons-for-going-gluten-free/)
 - [9 Signs You May Be Gluten Intolerant ...](https://health.allwomenstalk.com/signs-you-may-be-gluten-intolerant/)
 

@@ -58,16 +58,16 @@ College is expensive. Beyond the day-to-day living costs, students find themselv
 
 ## Related Posts
 
-- [freshmans nerve](https://teen.allwomenstalk.com/tips-to-survive-high-school/)
-- [how to get back into study mode](https://lifestyle.allwomenstalk.com/tips-to-prepare-for-school/)
-- [interesting articles for college students](https://lifestyle.allwomenstalk.com/tips-for-girls-starting-college/)
-- [income minus outgo equals exactly](https://money.allwomenstalk.com/financial-advice-college-girls-need-to-follow-post-graduation/)
 - [hottest college majors](https://lifestyle.allwomenstalk.com/ways-to-get-the-most-out-of-college/)
-- [things to do before going back to college](https://lifestyle.allwomenstalk.com/things-to-do-before-going-back-to-college/)
-- [business essay writing tips](https://lifestyle.allwomenstalk.com/how-to-write-a-business-essay/)
 - [dress tips to stand out](https://teen.allwomenstalk.com/ways-to-stand-out-on-the-first-day-of-school/)
-- [best life hacks for students](https://lifestyle.allwomenstalk.com/college-life-hacks/)
 - [amateur college girls](https://lifestyle.allwomenstalk.com/small-ways-college-girls-can-have-fun-during-finals/)
+- [interesting articles for college students](https://lifestyle.allwomenstalk.com/tips-for-girls-starting-college/)
+- [how to get back into study mode](https://lifestyle.allwomenstalk.com/tips-to-prepare-for-school/)
+- [best life hacks for students](https://lifestyle.allwomenstalk.com/college-life-hacks/)
+- [business essay writing tips](https://lifestyle.allwomenstalk.com/how-to-write-a-business-essay/)
+- [freshmans nerve](https://teen.allwomenstalk.com/tips-to-survive-high-school/)
+- [income minus outgo equals exactly](https://money.allwomenstalk.com/financial-advice-college-girls-need-to-follow-post-graduation/)
+- [things to do before going back to college](https://lifestyle.allwomenstalk.com/things-to-do-before-going-back-to-college/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 - [7 Reasons Some do Not Go to College ...](https://allwomenstalk.com/7-reasons-some-do-not-go-to-college/)
 

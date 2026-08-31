@@ -43,15 +43,15 @@ Choosing classes is a battle, but sticking them out is the whole war. It’s oka
 ## Related Posts
 
 - [lobster romantic meaning](https://love.allwomenstalk.com/this-is-how-you-know-youve-found-your-lobster/)
-- [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
-- [crystal clear signs](https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/)
 - [signs you're destined to be together](https://inspiration.allwomenstalk.com/undeniable-signs-youre-destined-for-bigger-things-and-a-brighter-future/)
-- [signs you're a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
+- [crystal clear signs](https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/)
 - [signs im bisexual](https://love.allwomenstalk.com/signs-you-are-bisexual-for-girls-who-keep-getting-girl-crushes/)
 - [signs that your hair is damaged](https://hair.allwomenstalk.com/signs-your-hair-is-damaged-and-needs-attention/)
-- [control freak meaning in relationship](https://lifestyle.allwomenstalk.com/telling-signs-you-might-be-a-classic-control-freak/)
-- [when its time to move](https://love.allwomenstalk.com/signs-its-time-to-move-out/)
 - [is it time for a new phone](https://lifestyle.allwomenstalk.com/telling-signs-its-time-to-get-a-new-phone/)
+- [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
+- [control freak meaning in relationship](https://lifestyle.allwomenstalk.com/telling-signs-you-might-be-a-classic-control-freak/)
+- [signs you're a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
+- [when its time to move](https://love.allwomenstalk.com/signs-its-time-to-move-out/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 - [7 Signs You Need to Move out of Your Home ...](https://allwomenstalk.com/7-signs-you-need-to-move-out-of-your-home/)
 

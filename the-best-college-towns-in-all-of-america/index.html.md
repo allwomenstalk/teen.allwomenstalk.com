@@ -56,16 +56,16 @@ Whether you are just starting to consider colleges, or you're beginning this fal
 
 ## Related Posts
 
-- [geography europe map](https://travel.allwomenstalk.com/fun-european-maps-all-geography-nerds-will-love/)
-- [omaha christmas lights tour](https://travel.allwomenstalk.com/the-best-christmas-lights-in-every-state/)
-- [natural wonders of usa](https://travel.allwomenstalk.com/jaw-dropping-natural-wonders-found-in-america/)
-- [gemini ave neighborhood christmas lights](https://travel.allwomenstalk.com/best-places-for-holiday-lights-across-the-globe/)
-- [food to eat in vegas](https://food.allwomenstalk.com/restaurants-by-famous-chefs-every-foody-should-visit/)
-- [top hostels in the world](https://travel.allwomenstalk.com/the-best-hostels-in-the-world-according-to-the-hoscars/)
-- [loreal color riche stylo bottomless java](https://travel.allwomenstalk.com/mysteries-of-worlds-most-iconic-landmarks-all-trivia-lovers-need-to-see-asap/)
-- [julia borzucka](https://funny.allwomenstalk.com/artist-transforms-famous-places-with-digital-photography-must-see/)
 - [new york city secret spots](https://travel.allwomenstalk.com/secret-places-in-new-york-tourists-dont-know/)
+- [top hostels in the world](https://travel.allwomenstalk.com/the-best-hostels-in-the-world-according-to-the-hoscars/)
+- [natural wonders of usa](https://travel.allwomenstalk.com/jaw-dropping-natural-wonders-found-in-america/)
 - [most beautiful restaurants in nyc](https://travel.allwomenstalk.com/worlds-most-beautiful-restaurants-that-will-make-you-forget-about-food/)
+- [food to eat in vegas](https://food.allwomenstalk.com/restaurants-by-famous-chefs-every-foody-should-visit/)
+- [geography europe map](https://travel.allwomenstalk.com/fun-european-maps-all-geography-nerds-will-love/)
+- [gemini ave neighborhood christmas lights](https://travel.allwomenstalk.com/best-places-for-holiday-lights-across-the-globe/)
+- [omaha christmas lights tour](https://travel.allwomenstalk.com/the-best-christmas-lights-in-every-state/)
+- [julia borzucka](https://funny.allwomenstalk.com/artist-transforms-famous-places-with-digital-photography-must-see/)
+- [loreal color riche stylo bottomless java](https://travel.allwomenstalk.com/mysteries-of-worlds-most-iconic-landmarks-all-trivia-lovers-need-to-see-asap/)
 - [10 Really Cool Small Towns in America ...](https://travel.allwomenstalk.com/really-cool-small-towns-in-america/)
 - [10 Best Places to Live in America ...](https://lifestyle.allwomenstalk.com/best-places-to-live-in-america/)
 

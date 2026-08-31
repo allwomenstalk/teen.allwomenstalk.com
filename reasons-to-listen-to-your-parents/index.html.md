@@ -42,16 +42,16 @@ Listening to your parents is tough, but it’s definitely worth it. By the end o
 
 ## Related Posts
 
-- [childhood stuff](https://lifestyle.allwomenstalk.com/childhood-mementos-you-should-keep/)
-- [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
-- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
-- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
 - [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
-- [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
-- [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
 - [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
-- [how much should i charge my son for rent](https://parenting.allwomenstalk.com/tips-to-help-you-decide-how-much-rent-to-charge-your-kids/)
+- [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
+- [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
+- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
 - [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
+- [how much should i charge my son for rent](https://parenting.allwomenstalk.com/tips-to-help-you-decide-how-much-rent-to-charge-your-kids/)
+- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
+- [childhood stuff](https://lifestyle.allwomenstalk.com/childhood-mementos-you-should-keep/)
+- [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
 - [7 Reasons Never to Lie to Your Teen ...](https://parenting.allwomenstalk.com/7-reasons-never-to-lie-to-your-teen/)
 - [7 Reasons to Ask for a Parent-Teacher Conference ....](https://allwomenstalk.com/7-reasons-to-ask-for-a-parent-teacher-conference/)
 

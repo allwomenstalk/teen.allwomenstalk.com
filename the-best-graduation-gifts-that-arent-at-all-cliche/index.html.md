@@ -42,15 +42,15 @@ You don't have to break the bank to get a nice graduation gift for your friend. 
 
 ## Related Posts
 
-- [practical person](https://lifestyle.allwomenstalk.com/stop-buying-gifts-nobodys-going-to-use-gifts-for-the-practical-person-in-your-life/)
-- [thanksgiving gifts for hosts](https://lifestyle.allwomenstalk.com/give-your-hostess-these-thoughtful-gifts-on-thanksgiving/)
+- [gifts for beauty lovers](https://beauty.allwomenstalk.com/the-best-gifts-for-beauty-lovers/)
+- [turtle wine pourer](https://lifestyle.allwomenstalk.com/these-are-gifts-worthy-of-any-art-lover/)
+- [gifts for athletes](https://lifestyle.allwomenstalk.com/gifts-to-get-your-athletes-adrenaline-pumping/)
 - [gift ideas for grammar geeks](https://books.allwomenstalk.com/gifts-for-the-grammar-nerd-in-your-life/)
 - [couple scrap book](https://love.allwomenstalk.com/unique-items-you-should-save-for-a-couples-scrapbook/)
-- [gifts for ocd men](https://lifestyle.allwomenstalk.com/best-gifts-for-friends-with-obsessive-compulsive-disorder-and-minimalists/)
+- [practical person](https://lifestyle.allwomenstalk.com/stop-buying-gifts-nobodys-going-to-use-gifts-for-the-practical-person-in-your-life/)
+- [thanksgiving gifts for hosts](https://lifestyle.allwomenstalk.com/give-your-hostess-these-thoughtful-gifts-on-thanksgiving/)
 - [modern gifts](https://lifestyle.allwomenstalk.com/modern-gifts-ideas-for-any-type-of-event-and-yourself/)
-- [turtle wine pourer](https://lifestyle.allwomenstalk.com/these-are-gifts-worthy-of-any-art-lover/)
-- [gifts for beauty lovers](https://beauty.allwomenstalk.com/the-best-gifts-for-beauty-lovers/)
-- [gifts for athletes](https://lifestyle.allwomenstalk.com/gifts-to-get-your-athletes-adrenaline-pumping/)
+- [gifts for ocd men](https://lifestyle.allwomenstalk.com/best-gifts-for-friends-with-obsessive-compulsive-disorder-and-minimalists/)
 - [unique gifts for baby shower](https://parenting.allwomenstalk.com/unique-gifts-to-buy-for-a-baby-shower/)
 - [7 Best Gifts for Teachers ...](https://lifestyle.allwomenstalk.com/best-gifts-for-teachers/)
 - [8 Amazingly Creative Family Gift Ideas ...](https://lifestyle.allwomenstalk.com/amazingly-creative-family-gift-ideas/)

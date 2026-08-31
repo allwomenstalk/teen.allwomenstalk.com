@@ -56,16 +56,16 @@ Dealing with insecurity is no easy task, but it’s one most people face. Fortun
 
 ## Related Posts
 
-- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
-- [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
 - [quotes about accomplishing goals](https://inspiration.allwomenstalk.com/quotes-to-help-you-accomplish-your-goals-and-dreams/)
-- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
-- [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
-- [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
-- [queen b quotes](https://movies.allwomenstalk.com/very-memorable-quotes-from-blair-waldorf/)
 - [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
 - [happiness thought of the day](https://inspiration.allwomenstalk.com/quotes-about-happiness-that-will-drive-away-your-blues/)
+- [queen b quotes](https://movies.allwomenstalk.com/very-memorable-quotes-from-blair-waldorf/)
+- [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
+- [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
+- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
+- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
 - [winnie the pooh your stronger](https://inspiration.allwomenstalk.com/quotes-from-winnie-the-pooh-that-resonate-whatever-your-age/)
+- [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Ways to Learn Your Insecurities ...](https://love.allwomenstalk.com/ways-to-learn-your-insecurities/)
 

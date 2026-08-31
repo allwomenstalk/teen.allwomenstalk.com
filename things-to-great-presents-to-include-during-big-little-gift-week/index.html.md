@@ -43,15 +43,15 @@ I received all these gifts during my big little gift week, and I loved them all!
 ## Related Posts
 
 - [things to put in a food gift basket](https://food.allwomenstalk.com/ideas-for-food-gifts-for-all-occasions/)
-- [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
 - [swimming party favours](https://diy.allwomenstalk.com/outstanding-party-favors-you-can-customize-for-your-next-party/)
-- [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
-- [printable dog bone stocking pattern](https://lifestyle.allwomenstalk.com/great-christmas-stockings-to-adorn-your-fireplace-this-year/)
 - [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
+- [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
+- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
 - [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
 - [purple christmas wreaths](https://diy.allwomenstalk.com/christmas-wreaths-to-welcome-your-guests/)
+- [printable dog bone stocking pattern](https://lifestyle.allwomenstalk.com/great-christmas-stockings-to-adorn-your-fireplace-this-year/)
 - [personalized holiday gifts](https://lifestyle.allwomenstalk.com/spectacular-websites-for-personalized-holiday-gifts/)
-- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
+- [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
 - [5 Wonderful Gift Ideas ...](https://allwomenstalk.com/5-wonderful-gift-ideas/)
 - [7 Great Gifts for Teachers ...](https://allwomenstalk.com/7-great-gifts-for-teachers/)
 

@@ -42,16 +42,16 @@ There are many tremendous job opportunities for teenagers. The key is to find so
 
 ## Related Posts
 
-- [spring vacation ideas for families](https://parenting.allwomenstalk.com/activities-or-mini-vacation-ideas-to-do-with-your-kids-on-spring-break/)
 - [pi day poems](https://parenting.allwomenstalk.com/fun-ideas-for-celebrating-national-pi-day/)
-- [year in new zealand](https://travel.allwomenstalk.com/ways-to-spend-a-year-in-new-zealand/)
 - [be stuck in traffic](https://travel.allwomenstalk.com/things-to-do-while-stuck-in-traffic/)
-- [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
-- [what to do when snowed in](https://lifestyle.allwomenstalk.com/fun-things-to-do-if-youre-snowed-in/)
-- [i'm not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
-- [scored it free stuff](https://money.allwomenstalk.com/awesome-ways-to-score-free-stuff/)
+- [spring vacation ideas for families](https://parenting.allwomenstalk.com/activities-or-mini-vacation-ideas-to-do-with-your-kids-on-spring-break/)
 - [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
 - [legal teenies](https://teen.allwomenstalk.com/legal-things-teens-can-do-for-fun/)
+- [i'm not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
+- [year in new zealand](https://travel.allwomenstalk.com/ways-to-spend-a-year-in-new-zealand/)
+- [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
+- [what to do when snowed in](https://lifestyle.allwomenstalk.com/fun-things-to-do-if-youre-snowed-in/)
+- [scored it free stuff](https://money.allwomenstalk.com/awesome-ways-to-score-free-stuff/)
 - [7 Ways for Teens to Make Money ...](https://allwomenstalk.com/7-ways-for-teens-to-make-money/)
 - [7 Unusual but Fun Ways to Earn Extra Money ...](https://allwomenstalk.com/7-unusual-but-fun-ways-to-earn-extra-money/)
 
