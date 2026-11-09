@@ -1,9 +1,9 @@
 ---
 title: "9 Things I Wish I Knew about the Real World in University ..."
-description: "You Need to Discipline Yourself; Use Your Independence Wisely; Take Care of Your Body; Protect Your Source of Income; Your Circle of Friends Will Decrease; More ..."
+description: "You Need to Discipline Yourself; Use Your Independence Wisely; Take Care of Your Body; Protect Your Source of Income; Your Circle of Friends Will Decrease"
 url: "https://teen.allwomenstalk.com/things-i-wish-i-knew-about-the-real-world-in-university/"
 category: "teen"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 9 Things I Wish I Knew about the Real World in University ...
@@ -52,14 +52,14 @@ There are tons more lessons I’ve learned since leaving university, and learnin
 
 - [how to stand out in your college application](https://teen.allwomenstalk.com/ways-to-make-your-college-application-stand-out/)
 - [teachers essay writing](https://teen.allwomenstalk.com/ways-to-write-an-essay-your-english-teacher-will-love-reading/)
-- [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
-- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
-- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
-- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
-- [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
-- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
 - [things to look forward to in college](https://teen.allwomenstalk.com/thrilling-things-to-look-forward-to-in-college/)
 - [should i go away for college](https://teen.allwomenstalk.com/reasons-to-move-away-for-college/)
+- [how to ace this class](https://teen.allwomenstalk.com/ways-to-ace-a-difficult-class/)
+- [when was pi phi founded](https://teen.allwomenstalk.com/national-sororities-to-consider-rushing/)
+- [2nd semester in college](https://lifestyle.allwomenstalk.com/of-the-worst-things-about-being-a-2nd-semester-senior-in-college/)
+- [best way to organize school work](https://teen.allwomenstalk.com/ways-to-organize-college-work/)
+- [how to pledge a sorority](https://teen.allwomenstalk.com/things-i-wish-i-knew-when-i-was-pledging-a-sorority/)
+- [safety tips for teenage girl](https://teen.allwomenstalk.com/tips-for-staying-safe-in-high-school/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [8 Things I Would Change about the World ...](https://allwomenstalk.com/8-things-i-would-change-about-the-world/)
 
